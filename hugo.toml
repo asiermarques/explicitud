@@ -1,0 +1,8 @@
+baseURL = 'https://example.org/'
+languageCode = 'es'
+defaultContentLanguage = 'es'
+title = 'Explicitud'
+theme = 'ananke'
+[languages]
+    [languages.es]
+    disabled = false
