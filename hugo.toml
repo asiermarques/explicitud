@@ -3,6 +3,14 @@ languageCode = 'es'
 defaultContentLanguage = 'es'
 title = 'Explicitud'
 theme = 'ananke'
+sectionPagesMenu = "main"
+enableRobotsTXT = true
 [languages]
     [languages.es]
     disabled = false
+[params.ananke.social.follow]
+networks = [
+    "instagram"
+]
+[params.ananke.social.instagram]
+username = "asiermarques"
