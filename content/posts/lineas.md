@@ -57,3 +57,6 @@ Es la cerveza fría en el balcón de tu casa a las 3:00am después de una noche 
 Es el bolígrafo bic amarillo escribiendo en un moleskine negro, ambos compañeros de viajes, reuniones y sufridores de pensamientos.
 
 Son más líneas en este texto.
+
+--
+Asier
