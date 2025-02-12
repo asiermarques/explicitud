@@ -1,5 +1,5 @@
 +++
-menus = 'info'
+menus = 'main'
 type = 'info'
 title = 'Acerca de'
 +++
