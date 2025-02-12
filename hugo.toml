@@ -2,15 +2,15 @@ baseURL = 'https://explicitud.com/'
 languageCode = 'es'
 defaultContentLanguage = 'es'
 title = 'Explicitud'
-theme = 'ananke'
-sectionPagesMenu = "main"
-enableRobotsTXT = true
-[languages]
-    [languages.es]
-    disabled = false
-[params.ananke.social.follow]
-networks = [
-    "instagram"
-]
-[params.ananke.social.instagram]
-username = "asiermarques"
+theme = 'hugo-theme-texty'
+
+[[menus.main]]
+name = 'Acerca de'
+pageRef = '/acerca-de/'
+weight = 20
+
+[params]
+  [params.social]
+    instagram = "your-instagram-url"
+    medium = "your-medium-url"
+    twitter = "your-twitter-url"
