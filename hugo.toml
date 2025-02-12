@@ -11,6 +11,6 @@ weight = 20
 
 [params]
   [params.social]
-    instagram = "your-instagram-url"
-    medium = "your-medium-url"
-    twitter = "your-twitter-url"
+    instagram = "https://www.instagram.com/asiermarques/"
+    medium = "https://medium.com/@asiermarques"
+    twitter = ""
