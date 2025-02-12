@@ -1,5 +1,5 @@
 [build]
-command = "git submodule update --force --recursive --init --remote && hugo --minify"
+command = "hugo --minify"
 publish = "public"
 
 [build.environment]
