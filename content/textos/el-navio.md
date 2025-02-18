@@ -5,7 +5,7 @@ draft = false
 +++
 
 Restos de su antiguo navío flotan por doquier. Su fuerza y protección se perciben aún en el agua. Se aproxima una tormenta y su humor no está para tales inclemencias.  
-«Debería haberme traído un paraguas», murmuró.
+«Debería haber traído un paraguas», murmuró.
 
 --
 Asier
