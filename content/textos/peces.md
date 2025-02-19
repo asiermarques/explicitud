@@ -10,7 +10,7 @@ Tengo hambre, el aburrimiento me consume y, para colmo, están los peces. Esos d
 
 Arranqué un viaje prometedor con gente interesante y capitanes experimentados. Ahora, en cambio, me encuentro solo y sin rumbo, hostigado por peces insoportables, preguntándome qué fue de todo aquello.
 
-Otra hora más. Parece que esos molestos peces se han ido con sus prisas a otra parte. Aprovecho para dejarme atrapar por mis pensamientos. De pronto, algo sucede. Una ola gigante golpea mi embarcación. Sin embargo, no se trata de una ola, sino de otro pez. Lo reconozco enseguida. Es un pez gordo a quien no parezco caerle bien. Me mira con desprecio, pero ignoro su gesto porque, tras esta odiosa e interminable espera, por fin diviso tierra.
+Otra hora más. Parece que esos molestos peces se han ido con sus prisas a otra parte. Aprovecho para dejarme atrapar por mis pensamientos. De pronto, algo sucede. Una ola gigante me golpea. Sin embargo, no se trata de una ola, sino de otro pez. Lo reconozco enseguida. Es un pez gordo a quien no parezco caerle bien. Me mira con desprecio, pero ignoro su gesto porque, tras esta odiosa e interminable espera, por fin diviso tierra.
 
 Es hora de fichar e irme a casa.
 
