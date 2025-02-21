@@ -1,5 +1,6 @@
 +++
 title = 'El navío'
+description = 'Un relato sobre un náufago y su antiguo navío.'
 date = 2025-02-17T10:07:07+02:00
 draft = false
 +++

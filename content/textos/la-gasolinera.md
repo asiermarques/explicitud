@@ -1,8 +1,9 @@
 +++
 title = 'La gasolinera'
+description = 'Un relato sobre una gasolinera abandonada.'
 date = 2024-08-15T23:07:07+02:00
 draft = false
-+++  
++++
 
 ¿Y lo que jode darle la razón a tu escepticismo? A esa barrera antihostias que te protege de toda posibilidad de sentir.
 Jode tener razón cuando no quieres tenerla.

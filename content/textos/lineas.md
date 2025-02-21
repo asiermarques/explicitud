@@ -1,8 +1,9 @@
 +++
 title = 'Más líneas en este texto'
+description = 'Un texto sobre cosas que se experimentan y se experimentarán.'
 date = 2012-11-14T19:07:07+02:00
 draft = false
-+++  
++++
 
 Es el aroma del café, cuando éste está caliente.
 

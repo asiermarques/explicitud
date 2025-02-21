@@ -1,5 +1,6 @@
 +++
 title = 'Peces'
+description = 'Un relato sobre un náufago rodeado de peces'
 date = 2025-02-18T18:06:07+02:00
 draft = false
 +++
