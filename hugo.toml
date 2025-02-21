@@ -10,6 +10,7 @@ pageRef = '/acerca-de/'
 weight = 20
 
 [params]
+  description = "Explicitud, textos y microrelatos."
   [params.social]
     instagram = "https://www.instagram.com/asiermarques/"
     medium = "https://medium.com/@asiermarques"
