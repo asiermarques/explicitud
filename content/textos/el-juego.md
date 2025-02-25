@@ -1,6 +1,6 @@
 +++
 title = 'El juego'
-description = 'Un relato inspirado en El Buitre, de Kafka'
+description = 'Un relato inspirado en El Buitre, de Frank Kafka'
 date = 2025-02-25T18:06:07+02:00
 draft = false
 +++
