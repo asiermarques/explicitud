@@ -7,8 +7,8 @@ draft = false
 
 Hace meses que jugamos a este juego: en cuanto me piensa, me precipito contra su pecho con todas mis fuerzas. Me encanta notar cómo su respiración se quiebra al estrujarle con mis abrazos. Es una obsesión que me pierde. De noche, disfruto despertándolo para recordarle que sigo a su lado, aferrada a él, sin intención alguna de soltarlo.
 
-Habla de mí con sus amistades.  
-Le repiten una y otra vez que me olvide, que no se preocupe tanto, que terminaré desapareciendo. Le dicen que pasaré como pasa el tiempo. Sin embargo, esas palabras sólo hacen que me piense con la misma fuerza con la que yo lo abrazo.
+Habla de mí con sus amistades. Le repiten una y otra vez que me olvide, que no se preocupe tanto, que terminaré desapareciendo.  
+Le dicen que pasaré como pasa el tiempo. Sin embargo, esas palabras sólo hacen que me piense con la misma fuerza con la que yo lo abrazo.
 
 Aún así, reconozco que me aterra que se distraiga, que se vuelque en actividades que le impidan pensar en mí. No soporto esa idea.  
 No podría vivir sin abrazarlo.
