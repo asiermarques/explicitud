@@ -11,7 +11,7 @@ Habla de mí con sus amistades. Le repiten una y otra vez que me olvide, que no 
 
 Aún así, reconozco que me aterra que se distraiga, que se vuelque en actividades que le impidan pensar en mí. No soporto esa idea. No podría vivir sin abrazarlo.
 
-Pongo en marcha un plan infalible: un abrazo tan intenso que nos fundirá a ambos para siempre. Me lanzo sobre él y aprieto con fuerza. Y sigo apretando, con mucha más fuerza; no quiero parar. Noto cómo sus huesos empiezan a protestar, clavándose en su aliento. Él se revuelve de dolor y sigo insistiendo. Llegamos juntos a un nivel de intensidad que jamás habíamos experimentado. Pero no estoy satisfecha: quiero más. Reúno todas las fuerzas que me quedan para apretar con aún más ímpetu*.* De pronto, noto que se rinde. Ya no percibo resistencia alguna; no respira en absoluto.
+Pongo en marcha un plan infalible: un abrazo tan intenso que nos fundirá a ambos para siempre. Me lanzo sobre él y aprieto con fuerza. Y sigo apretando, con mucha más fuerza; no quiero parar. Noto cómo sus huesos empiezan a protestar, clavándose en su aliento. Él se revuelve de dolor y sigo insistiendo. Llegamos juntos a un nivel de intensidad que jamás habíamos experimentado. Pero no estoy satisfecha: quiero más. Reúno todas las fuerzas que me quedan para apretar con aún más ímpetu. De pronto, noto que se rinde. Ya no percibo resistencia alguna; no respira en absoluto.
 
 Exhausta, contemplo con miedo y decepción su cuerpo agarrotado en el suelo. Ya no me piensa, ni desea continuar nuestro juego.
 
