@@ -5,7 +5,7 @@ date = 2025-03-07T18:06:07+02:00
 draft = false
 +++
 
-«Parece que va a llover», se leía en la pizarra del bar de una recóndita posada, perdida entre montañas donde la lluvia nunca cesaba. Era el punto de encuentro para quienes mataban el tiempo con una pinta de cerveza. Y lo hacían en silencio; allí nadie hablaba. En ese cementerio de seres bebientes, sólo se oía a la posadera ocupándose de sus rutinas y el murmullo del agua contra las ventanas. Pero esa calma que era tan apreciada por todos, se interrumpida cuando cierto personaje decidía pasarse por allí.
+«Parece que va a llover», se leía en la pizarra del bar de una recóndita posada, perdida entre montañas donde la lluvia nunca cesaba. Era el punto de encuentro para quienes mataban el tiempo con una pinta de cerveza. Y lo hacían en silencio; allí nadie hablaba. En ese cementerio de seres bebientes, sólo se oía a la posadera ocupándose de sus rutinas y el murmullo del agua contra las ventanas. Pero esa calma, tan apreciada por todos, era interrumpida cuando cierto personaje decidía pasarse por allí.
 
 Era de los que no callan ni bajo el agua. De esos que cuentan detalles de su vida al primero que se les cruza y que cuando te hablan de un tema, pasan a otro distinto dejándote con la respuesta en la boca. Y ese día tenía muchas ganas de hablar.
 
