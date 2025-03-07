@@ -7,8 +7,8 @@ draft = false
 
 «Parece que va a llover», se leía en la pizarra del bar de una recóndita posada, perdida entre montañas donde la lluvia nunca cesaba. Era el punto de encuentro para quienes mataban el tiempo con una pinta de cerveza. Y lo hacían en silencio; allí nadie hablaba. En ese cementerio de seres bebientes, sólo se oía a la posadera ocupándose de sus rutinas y el murmullo del agua contra las ventanas. Pero esa calma, tan apreciada por todos, era interrumpida cuando cierto personaje decidía pasarse por allí.
 
-Se trataba de un tipo de los que no callan ni bajo el agua. De esos que cuentan detalles de su vida al primero que se les cruza y que cuando te hablan de un tema, pasan a otro distinto dejándote con la respuesta en la boca.  
-Y aquel día tenía muchas ganas de hablar.
+Aquel era un tipo de los que no callan ni bajo el agua. De esos que cuentan detalles de su vida al primero que se les cruza y que cuando te hablan de un tema, pasan a otro distinto dejándote con la respuesta en la boca.  
+Y ese día tenía muchas ganas de hablar.
 
 Estaba completamente empapado. Nada más entrar por la puerta se quejó de la lluvia, lamentando haberse dejado el paraguas en casa. Siguió hablando sin parar, la posadera lo observaba impaciente, deseando que pidiera de una vez para poder volver a sus rutinas. Tras liberar a la pobre mujer y ya con su pinta en la mano, caminó por la sala buscando víctimas, lanzando frases a todo aquel que osara a cruzarle la mirada. Algunos se refugiaban tras sus vasos de cerveza, como niños chicos evitando los ojos del profesor para no ser preguntados. Uno sintió tal agobio que huyó al baño para salvarse, pero lo encontró ya ocupado por algún otro más avispado. Resignado, observó desde el fondo del local cómo la boca de aquel devorador de atención se hacía más y más grande. Se hizo tan enorme que empezó a engullir el bar entero. Literalmente.
 
