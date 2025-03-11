@@ -20,3 +20,6 @@ Cuando se acercó a la casa de su amigo, sintó como el estómago le estrangulab
 Cuidó de Clara como si fuera su hija hasta el fin de sus días. A menudo, lo visitaban antiguos compañeros de aventuras que llegaban desde muy lejos para revivír juntos anécdotas pasadas.
 
 Nunca quiso viajar de nuevo. Encontró todo el azul del mundo en los ojos de Clara, que se iluminaban al sonreir mientras preparaba ramos de rosas para sus padres.
+
+--  
+Asier
