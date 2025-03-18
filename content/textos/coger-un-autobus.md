@@ -1,5 +1,5 @@
 +++
-title = 'Coger un autobus'
+title = 'Coger un autobús'
 description = 'Un muchacho llega tarde a coger su autobús'
 date = 2025-03-18T18:06:07+02:00
 draft = false
