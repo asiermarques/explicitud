@@ -1,5 +1,5 @@
 +++
-title = 'Sueño número uno'
+title = 'Sueño uno'
 description = 'Sueño número uno, sobre la brecha'
 date = 2025-03-25T18:03:07+02:00
 draft = false
