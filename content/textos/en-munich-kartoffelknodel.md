@@ -13,6 +13,5 @@ El sabor le hacía justicia. Tras probar la carne y mojar varios trozos de pan e
 
 A su espalda, de la pared colgaba un cuadro en el que un hombre yacía con la cabeza estampada en un plato hondo, rebosante de salsa oscura. A su lado, una enorme jarra de cerveza vacía. Una advertencia nada sutil, si me preguntan.
 
---
-
+--  
 Asier
