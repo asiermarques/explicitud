@@ -5,8 +5,8 @@ date = 2025-05-09T23:07:07+02:00
 draft = false
 +++
 
-El mundo lleva ya mucho tiempo cubierto de nieve.  
-Viento y nieve luchan sin descanso, fundiéndose en un baile inclemente que entorpece la vista y desgasta la existencia. Sus aullidos, resultado de esa lucha, son omnipresentes; se escuchan en cada recóndito lugar. En uno de esos lugares, se adivina, a lo lejos, la figura de un edificio gris sin ventanas y con forma de fortaleza. Este, se encuentra casi totalmente enterrado por la nieve, salvo su parte delantera, donde un pasillo de hielo, de varios metros de ancho y profundidad, se extiende desde una gigantesca puerta de acero hasta perderse en el horizonte.  
+
+En este mundo, el viento y la nieve luchan sin descanso, fundidos en un baile inclemente que entorpece la vista y desgasta la existencia desde hace ya demasiado tiempo. Sus aullidos, resultado de esa lucha, son omnipresentes; se escuchan en cada recóndito lugar. En uno de esos lugares, se adivina, a lo lejos, la figura de un edificio gris sin ventanas y con forma de fortaleza. Este, se encuentra casi totalmente enterrado por la nieve, salvo su parte delantera, donde un pasillo de hielo, de varios metros de ancho y profundidad, se extiende desde una gigantesca puerta de acero hasta perderse en el horizonte.  
 Delante de esa puerta, se pueden distinguir dos pequeñas siluetas, que la custodian como soldaditos de plomo, inmóviles, con su mirada iluminada fija en el horizonte.  
   
 «Bip». Un leve pitido surgió del interior de la silueta de la derecha: un robot humanoide. La silueta de al lado, la del otro robot, giró la cabeza hacia él, como si el pitido hubiera despertado su curiosidad.  
