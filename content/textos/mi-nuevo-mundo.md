@@ -1,6 +1,6 @@
 +++
 title = 'Mi nuevo mundo'
-description = 'Un relato sobre una DJ que pierde el oído.'
+description = 'Un relato sobre una artista que pierde el oído.'
 date = 2025-05-30T19:07:07+02:00
 draft = false
 +++
