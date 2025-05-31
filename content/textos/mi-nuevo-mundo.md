@@ -11,7 +11,7 @@ Notas que cobran vida al erizarnos la piel, tirando de los hilos conectados a nu
 Es la brisa que sale de nuestras bocas. A veces con palabras. A veces con silbidos.  
 Son las palabras cantadas. Palabras que, si no se escriben ni se cantan, duelen. Y mucho.  
 Son los sonidos imposibles, pero que se crean de todas formas.  
-Se crean con melodías electrónicas que rodean el espíritu para que, adrenalina y sentimiento, bailen juntos toda la noche. Y toda la eternidad, si así se lo proponen.  
+Se crean con melodías que rodean el espíritu para que, adrenalina y sentimiento, bailen juntos toda la noche. Y toda la eternidad, si así se lo proponen.  
 
 La música electrónica fue mi mundo y mi profesión.  
 Hasta el día en el que desperté condenada a una presión silenciosa.  
