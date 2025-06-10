@@ -7,7 +7,7 @@ draft = false
 Había una vez un pueblo habitado por valientes guerreros.   
 Se apostaban en bares, plazas y lugares donde hubiera audiencia. Hablaban, bien alto y bien claro, sobre las batallas que librarían contra toda injusticia y malhechor que habitase en el mundo.
 
-Se quejaban de todo lo que estaba mal en el mundo, señalaban a los causantes de tales penurias. Que siempre eran otros, los cobardes. 
+Se quejaban de todo lo que estaba mal en el mundo, señalaban a los causantes de tales penurias. Que siempre eran otros, los malhechores y los cobardes. 
 Odiaban a los malhechores pero eran los cobardes, sin ninguna duda, su mayor enemigo. Gente de todo tipo que eran inútiles en solucionar lo que estaba mal en el mundo y cobardes a la hora de enfrentarse a los malhechores.  
 ¡Ay de estos si se encontrasen con nuestros guerreros cara a cara! Los destruirían sin piedad de mil formas distintas. Les infundirían tanto respeto que no les quedase otra salida que abandonar el oficio del mal para siempre.
 
