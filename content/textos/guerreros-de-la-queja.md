@@ -5,7 +5,7 @@ date = 2025-06-03T23:07:07+02:00
 draft = false
 +++
 Había una vez un pueblo habitado por valientes guerreros.   
-Se apostaban en bares, plazas y lugares donde hubiera audiencia. Hablaban, bien alto y bien claro, sobre las batallas que librarían contra toda injusticia que habitase en el mundo.
+Se apostaban en bares, plazas y lugares donde hubiera audiencia. Hablaban bien alto y bien claro, sobre las batallas que librarían contra toda injusticia que habitase en el mundo.
 
 Se quejaban de todo lo que estaba mal, señalaban a los causantes de tales penurias. Que siempre eran otros, los malhechores y los cobardes. 
 
