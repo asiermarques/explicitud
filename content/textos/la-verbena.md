@@ -5,21 +5,26 @@ date = 2025-06-15T23:07:07+02:00
 draft = false
 +++
 
-Al abrir los ojos encontré oscuridad y la sensación de no estar en mi cama. Tras intentar incorporarme, mi confusión se acentuó al encontrarme con un tipo portando lo que parecía un candelero y que me miraba fijamente con ojos caídos y en profundo silencio. Estaba a la altura de los pies de la cama e iba vestido completamente de negro. La tímida luz de la única vela en su candelero iluminaba su cara, alargada y de mentón pronunciado, como la de esas personas que parecen claramente enterradores.  
+Al abrir los ojos encontré oscuridad y la sensación de no estar en mi cama. Tras intentar incorporarme, mi confusión se acentuó al encontrarme con un tipo portando lo que parecía un candelero y que me miraba fijamente con ojos caídos y en profundo silencio. Estaba a la altura de los pies de la cama e iba vestido completamente de negro.  
+La tímida luz de la única vela en su candelero iluminaba su cara, alargada y de mentón pronunciado, como la de esas personas que parecen claramente enterradores.  
 
-Normalmente ese tipo de situaciones me hubieran sobresaltado como mínimo, provocándome un infarto entre figurado y real, pero en ese momento me sentía como flotando y con una pasividad ante la situación bastante sospechosa. Lo más probable es que estuviera soñando.   
+Normalmente ese tipo de situaciones me hubieran sobresaltado como mínimo, provocándome un infarto entre figurado y real, pero en ese momento me sentía como flotando y con una pasividad ante la situación bastante sospechosa. Lo más probable es que estuviera soñando.  
+
 \- ¿Por qué llevas una vela? -de todas las cosas que podría preguntarle a aquel tipo, esto fue lo que salió por mi boca. Definitivamente estaba en un sueño.    
 
-\- Soy el fantasma de las verbenas pasadas y llevo una vela para que puedas verme. -dijo la cara iluminada por la vela con un tono de obviedad, como si la pregunta sobrase.- Esto está muy oscuro y no llevarla nos complicaría las cosas. La vela es importante, sin ella nos retrasaríamos. Necesito que me acompañes. -añadió con seriedad y tono de urgencia.   
+\- Soy el fantasma de las verbenas pasadas y llevo una vela para que puedas verme. -dijo la cara iluminada por la vela con un tono de obviedad, como si la pregunta sobrase.- Esto está muy oscuro y no llevarla nos complicaría las cosas. La vela es importante, sin ella nos retrasaríamos.  
+Necesito que me acompañes. -añadió con seriedad y tono de urgencia.   
 
 \- Entonces no estoy muerto, esto se trata de un sueño. -Dije aliviado, como si soñar lo que parecía una versión cutre de Pesadilla antes de Navidad fuera motivo para no preocuparse.  
 
-\- No, no estás ni muerto ni soñando. Ibas conduciendo, camino a tu pueblo, recordarás eso. Levántate, no tenemos mucho tiempo. -El fantasma no es que fuera muy generoso en palabras. Mientras hablaba, dejó el candelero en el suelo y empezó a palpar la oscuridad con sus largos brazos, y sus manos se hundieron en paredes que no se veían. Finalmente abrió una puerta de la nada y se quedó esperando junto a ella con impaciencia.  
+\- No, no estás ni muerto ni soñando. Ibas conduciendo, camino a tu pueblo, recordarás eso. Levántate, no tenemos mucho tiempo. -El fantasma no es que fuera muy generoso en palabras. Mientras hablaba, dejó el candelero en el suelo y empezó a palpar la oscuridad con sus largos brazos, y sus manos se hundieron en paredes que no se veían.  
+Finalmente abrió una puerta de la nada y se quedó esperando junto a ella con impaciencia.  
 
 \- Pero… ¿y entonces?  
 
 En ese momento empezaron a llegarme imágenes de mis últimos recuerdos. Estaba conduciendo hacia el pueblo en el que veraneé hace muchos años. A alguna de mis antiguas amistades que también veraneaban por allí, se le ocurrió que era buena idea juntarnos de nuevo a pasar las fiestas de aquel lugar, juntos una vez más. Tenía prácticamente olvidadas a aquellas personas y aunque la idea de retomar el contacto no me parecía una mala idea, la de ir a pasar días con ellos en fiestas de un pueblo perdido ya me daba bastante más pereza.  
-Todas aquellas almas del pasado estaban aparentemente muy ilusionadas por el reencuentro, y aunque sospechaba que esa ilusión era más bien fruto del quedar bien, no quería ser yo él el que dijera que no iba a ir, el aburrido, el que se tira para atrás o el que dice que no cuando el resto dice que sí. Tenía que ir.  
+Todas aquellas almas del pasado estaban aparentemente muy ilusionadas por el reencuentro, y aunque sospechaba que esa ilusión era más bien fruto del quedar bien, no quería ser yo él el que dijera que no iba a ir, el aburrido, el que se tira para atrás o el que dice que no cuando el resto dice que sí.  
+_Tenía que_ ir.  
 
 Decidí partir para allí al salir de la oficina; fue un día agotador y se me hizo bastante tarde. Aunque el viaje me daba mucha pereza, decidí ir de todas formas y hacerlo ese mismo día, para ahorrarme madrugar el día siguiente.  
 
@@ -36,7 +41,8 @@ Varias cuerdas llenas de banderas dibujaban un techo transparente en forma de ca
 
 A uno de los lados, el único bar del pueblo acogía en su terraza a la gente que no quería ni bailar ni peritar verbenas. Dentro, la gente se amontonaba esperando conseguir su preciado vaso de plástico.  
 
-Y allí estaba yo, tenía diecisiete años entonces y formaba parte de ese grupo que peritaba verbenas. A mi lado estaba mi mejor amigo, de ese lugar y de todos los lugares. Nunca tuve una conexión tan auténtica con nadie más. Esa conexión estaba a años luz en autenticidad, complicidad y confianza de la que tenía con los otros, que formaban parte de nuestra peña. En esa peña éramos quince personas, pero nosotros siempre íbamos a nuestra bola. A lomos de nuestras bicis visitábamos un sinfín de pueblos y nos encantaba volver al nuestro para encontrarnos al resto de nuestro grupo tirados en cualquier esquina del pueblo, aburridos de no hacer nada mientras que nosotros habíamos hecho quince mil cosas y habíamos visto quince mil bichos, humanos o no, haciendo quince mil tonterías.  
+Y allí estaba yo, tenía diecisiete años entonces y formaba parte de ese grupo que peritaba verbenas. A mi lado estaba mi mejor amigo, de ese lugar y de todos los lugares. Nunca tuve una conexión tan auténtica con nadie más. Esa conexión estaba a años luz en autenticidad, complicidad y confianza de la que tenía con los otros, que formaban parte de nuestra peña. En esa peña éramos quince personas, pero nosotros siempre íbamos a nuestra bola.  
+A lomos de nuestras bicis visitábamos un sinfín de pueblos y nos encantaba volver al nuestro para encontrarnos al resto de nuestro grupo tirados en cualquier esquina del pueblo, aburridos de no hacer nada mientras que nosotros habíamos hecho quince mil cosas y habíamos visto quince mil bichos, humanos o no, haciendo quince mil tonterías.  
 
 En nuestra aburrida peña había varios protagonistas, y aunque afortunadamente no existía instagram ni ninguna cloaca parecida entonces, esos protagonistas contaban con sus seguidores, dentro y fuera del grupo.  
 
@@ -52,7 +58,7 @@ Todos esos líos de ego e intereses provocaban rechazo, bandos y pequeñas tiran
 
 Era como ver la entradilla de Juego de Tronos, pero que en lugar de su famosa melodía, sonase Paquito el chocolatero y después el 20 de Abril del 90 de Celtas Cortos.  
 
-A pesar de esas cosas, nos lo pasábamos bien. A partir del décimo vaso de plástico de ron con coca cola, ya te daba igual que la orquesta tocase el quemadísimo Saturday Nigth de Whigfield pronunciada como si la cantase un gato pidiendo jamon york, la bailabas igual intentando no caerte al suelo mientras hacías su coreografía.
+A pesar de esas cosas, nos lo pasábamos bien. A partir del décimo vaso de plástico de ron con coca cola, ya te daba igual que la orquesta tocase el quemadísimo Saturday Nigth de Whigfield pronunciada como si la cantase un gato pidiendo jamon york, la bailabas igual intentando no caerte al suelo mientras hacías su coreografía.  
 Al final de la noche, todos los que no estábamos en una esquina dándonos besos, nos íbamos a la era del pueblo, nos tirábamos en la hierba a ver las estrellas, que veíamos con una nitidez que abrumaba.
 
 \- ¿Lo pasabas bien?-Preguntó el fantasma
@@ -84,7 +90,8 @@ Pero yo, por alguna razón, acabé viendo las estrellas con la segunda chica má
 
 \- Pues creo que sí, aunque recuerdo tener una sensación rara todo el tiempo. Una sensación que ya no recordaba. Creo que a partir de ahí todo fue a peor, la gente empezó a distanciarse y… argg ggg gg. -el fantasma tenía uno de sus largos brazos en alto y su extraña magia me impedía seguir hablando, era como si me ahogase.
 
-\- Ya me has respondido. No tenemos tiempo para más reflexiones. Aún nos queda visitar una última verbena. -interrumpió el fantasma impaciente mientras miraba cómo me ahogaba al intentar hablar-. Acompáñame a la puerta. Vamos.
+\- Ya me has respondido. No tenemos tiempo para más reflexiones. Aún nos queda visitar una última verbena. -interrumpió el fantasma impaciente mientras miraba cómo me ahogaba al intentar hablar-. 
+Acompáñame a la puerta. Vamos.
 
 Atravesamos la puerta y llegamos a una verbena en la que ya no hay casetas para disparar a palillos. Ya no hay tanta gente en el bar, amontonándose para conseguir su vaso de plástico. La orquesta toca Paquito chocolatero, gente más joven, los que antes eran adolescentes diminutos son los que siguen la canción entusiasmados. Ya no hay cuerdas que dibujen un techo de banderas.
 
