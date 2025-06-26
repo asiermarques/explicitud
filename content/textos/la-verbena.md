@@ -6,11 +6,9 @@ draft = false
 +++
 
 Al abrir los ojos encontré oscuridad y la sensación de no estar en mi cama. Tras intentar incorporarme, mi confusión se acentuó al encontrarme con un tipo portando lo que parecía un candelero y que me miraba fijamente con ojos caídos y en profundo silencio. Estaba a la altura de los pies de la cama e iba vestido completamente de negro.  
-La tímida luz de la única vela en su candelero iluminaba su cara, alargada y de mentón pronunciado, como la de esas personas que parecen claramente enterradores.  
+La tímida luz de la única vela en su candelero iluminaba su cara, alargada y de mentón pronunciado, como la de esas personas que parecen claramente enterradores.
 
-Normalmente ese tipo de situaciones me hubieran sobresaltado como mínimo, provocándome un infarto entre figurado y real, pero en ese momento me sentía como flotando y con una pasividad ante la situación bastante sospechosa. Lo más probable es que estuviera soñando.  
-
-\- ¿Por qué llevas una vela? -de todas las cosas que podría preguntarle a aquel tipo, esto fue lo que salió por mi boca. Definitivamente estaba en un sueño.    
+\- ¿Por qué llevas una vela? -de todas las cosas que podría preguntarle a aquel tipo, esto fue lo que salió por mi boca. Estaba claro que estaba soñando.   
 
 \- Soy el fantasma de las verbenas pasadas y llevo una vela para que puedas verme. -dijo la cara iluminada por la vela con un tono de obviedad, como si la pregunta sobrase.- Esto está muy oscuro y no llevarla nos complicaría las cosas. La vela es importante, sin ella nos retrasaríamos.  
 Necesito que me acompañes. -añadió con seriedad y tono de urgencia.   
