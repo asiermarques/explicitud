@@ -10,7 +10,7 @@ La tímida luz de la única vela en su candelero iluminaba su cara, alargada y d
 
 \- ¿Por qué llevas una vela? -de todas las cosas que podría preguntarle a aquel tipo, esto fue lo que salió por mi boca. No cabía duda de que estaba soñando.   
 
-\- Soy el fantasma de las verbenas pasadas y llevo una vela para que puedas verme. -dijo la cara iluminada por la vela con un tono de obviedad.- Esto está muy oscuro y no llevarla nos complicaría las cosas. La vela es importante, sin ella nos retrasaríamos.  
+\- Soy el fantasma de las verbenas pasadas. Llevo una vela para que puedas verme. -dijo la cara iluminada por la vela con un tono de obviedad.- Esto está muy oscuro y no llevarla nos complicaría las cosas. La vela es importante, sin ella nos retrasaríamos.  
 Necesito que me acompañes. -añadió con seriedad y tono de urgencia.   
 
 \- Entonces no estoy muerto, esto se trata de un sueño. -Dije aliviado, como si soñar lo que parecía una versión cutre de Pesadilla antes de Navidad fuera motivo para no preocuparse.  
