@@ -1,24 +1,24 @@
 +++
 title = 'La verbena'
 description = 'Un tipo y varias verbenas'
-date = 2025-06-15T23:07:07+02:00
+date = 2025—06—15T23:07:07+02:00
 draft = false
 +++
 
 Al abrir los ojos encontré oscuridad y la sensación de no estar en mi cama. Tras intentar incorporarme, mi confusión se acentuó al encontrarme con un tipo portando lo que parecía un candelero y que me miraba fijamente con ojos caídos y en profundo silencio. Estaba a la altura de los pies de la cama e iba vestido completamente de negro.  
 La tímida luz de la única vela en su candelero iluminaba su cara, alargada y de mentón pronunciado, como la de esas personas que parecen claramente enterradores.
 
-\- ¿Por qué llevas una vela? -de todas las cosas que podría preguntarle a aquel tipo, esto fue lo que salió por mi boca. No cabía duda de que estaba soñando.   
+— ¿Por qué llevas una vela? —de todas las cosas que podría preguntarle a aquel tipo, esto fue lo que salió por mi boca. No cabía duda de que estaba soñando.   
 
-\- Soy el fantasma de las verbenas pasadas. Llevo una vela para que puedas verme. -dijo la cara iluminada por la vela con un tono de obviedad.- Esto está muy oscuro y no llevarla nos complicaría las cosas. La vela es importante, sin ella nos retrasaríamos.  
-Necesito que me acompañes. -añadió con seriedad y tono de urgencia.   
+— Soy el fantasma de las verbenas pasadas. Llevo una vela para que puedas verme. —dijo la cara iluminada por la vela con un tono de obviedad.— Esto está muy oscuro y no llevarla nos complicaría las cosas. La vela es importante, sin ella nos retrasaríamos.  
+Necesito que me acompañes. —añadió con seriedad y tono de urgencia.   
 
-\- Entonces no estoy muerto, esto se trata de un sueño. -Dije aliviado, como si soñar lo que parecía una versión cutre de Pesadilla antes de Navidad fuera motivo para no preocuparse.  
+— Entonces no estoy muerto, esto se trata de un sueño. —Dije aliviado, como si soñar lo que parecía una versión cutre de Pesadilla antes de Navidad fuera motivo para no preocuparse.  
 
-\- No, no estás ni muerto ni soñando. Ibas conduciendo, camino a tu pueblo, recordarás eso. Levántate, no tenemos mucho tiempo. -El fantasma no es que fuera muy generoso en palabras. Mientras hablaba, dejó el candelero en el suelo y empezó a palpar la oscuridad con sus largos brazos, y sus manos se hundieron en paredes que no se veían.  
+— No, no estás ni muerto ni soñando. Ibas conduciendo, camino a tu pueblo, recordarás eso. Levántate, no tenemos mucho tiempo. —El fantasma no es que fuera muy generoso en palabras. Mientras hablaba, dejó el candelero en el suelo y empezó a palpar la oscuridad con sus largos brazos, y sus manos se hundieron en paredes que no se veían.  
 Finalmente abrió una puerta de la nada y se quedó esperando junto a ella con impaciencia.  
 
-\- Pero… ¿y entonces?  
+— Pero… ¿y entonces?  
 
 En ese momento empezaron a llegarme imágenes de mis últimos recuerdos. Estaba conduciendo hacia el pueblo en el que veraneé hace muchos años. A alguna de mis antiguas amistades que también veraneaban por allí, se le ocurrió que era buena idea juntarnos de nuevo a pasar las fiestas de aquel lugar, juntos una vez más. Tenía prácticamente olvidadas a aquellas personas y aunque la idea de retomar el contacto no me parecía una mala idea, la de ir a pasar días con ellos en fiestas de un pueblo perdido ya me daba bastante más pereza.  
 Todas aquellas almas del pasado estaban aparentemente muy ilusionadas por el reencuentro, y aunque sospechaba que esa ilusión era más bien fruto del quedar bien, no quería ser yo él el que dijera que no iba a ir, el aburrido, el que se tira para atrás o el que dice que no cuando el resto dice que sí.  
@@ -31,7 +31,7 @@ A esas alturas tenía claro que lo que me había pasado durante el trayecto me h
 Me levanté y seguía con la sensación de flotar. Tardé un poco en habituarme en andar así. Parecía un astronauta borracho. Hice todo lo posible por no pisar el candelero del fantasma y me acerqué a la puerta.  
 Tras atravesarla, nos encontramos en la plaza del pueblo al que iba a veranear cuando era mucho más joven.
 
-\- Estamos en la verbena de 1997. -dijo el fantasma sin añadir nada más.  
+— Estamos en la verbena de 1997. —dijo el fantasma sin añadir nada más.  
 
 Miles de recuerdos me abofetearon la cara. Observé la escena sin mediar palabra. Había puestos de esos en los que disparas con un rifle de perdigones trucado a palillos para conseguir un peluche horrible y demostrar que tienes puntería, aunque la mira esté manipulada para que no puedas apuntar bien. Había unos cuatro puestos de esos rodeando la plaza.  
 
@@ -59,18 +59,18 @@ Era como ver la entradilla de Juego de Tronos, pero que en lugar de su famosa me
 A pesar de esas cosas, nos lo pasábamos bien. A partir del décimo vaso de plástico de ron con coca cola, ya te daba igual que la orquesta tocase el quemadísimo Saturday Nigth de Whigfield pronunciada como si la cantase un gato pidiendo jamon york, la bailabas igual intentando no caerte al suelo mientras hacías su coreografía.  
 Al final de la noche, todos los que no estábamos en una esquina dándonos besos, nos íbamos a la era del pueblo, nos tirábamos en la hierba a ver las estrellas, que veíamos con una nitidez que abrumaba.
 
-\- ¿Lo pasabas bien?-Preguntó el fantasma
+— ¿Lo pasabas bien?—Preguntó el fantasma
 
-\- Ehh… si, claro que si-Dije con sorpresa; claramente me había leído la mente porque yo no había dicho nada.-¿Por qué lo preguntas?
+— Ehh… si, claro que si—Dije con sorpresa; claramente me había leído la mente porque yo no había dicho nada.—¿Por qué lo preguntas?
 
-\- Yo pregunto, pero respuestas no son importantes. Hemos terminado aquí.-Dijo volteándose e invitándome a atravesar de nuevo la puerta por la que habíamos venido.
+— Yo pregunto, pero respuestas no son importantes. Hemos terminado aquí.—Dijo volteándose e invitándome a atravesar de nuevo la puerta por la que habíamos venido.
 
 Al atravesar la puerta, nos encontramos la escena de otra verbena. Esta vez había menos cuerdas, menos banderas y menos puestos para disparar palillos.  
 El ambiente era parecido al de la verbena anterior, aunque había menos jóvenes corriendo de un lado al otro.
 
-\- Verbena del año 2000
+— Verbena del año 2000
 
-\- Yo ahí tenía veinte años.- dije, mostrando mis habilidades sumatorias.
+— Yo ahí tenía veinte años.— dije, mostrando mis habilidades sumatorias.
 
 Recordé que ese año la cosa estaba muy tensa. Había dos grupos divididos en esa peña, que no se hablaban entre ellos. El segundo más guapo del pueblo había empezado a salir con la segunda más guapa del pueblo, pero no funcionó muy bien, y el resultado fue que él se lió con la más guapa del pueblo, o la más guapa del pueblo se lió con él, no lo llegué a entender muy bien. La cuestión es que a su primo, el más guapo del pueblo, y a su antigua pareja, la segunda más guapa del pueblo, aquello no les sentó muy bien. Creo que ambos se liaron o intentaron hacerlo, pero algo pasó y estuvieron un tiempo evitándose.  
 Ese año eran amigos y nada más.  
@@ -84,18 +84,18 @@ Estaba solo cuando la orquesta se venía arriba con Fiesta Pagana, desafinando c
 
 Pero yo, por alguna razón, acabé viendo las estrellas con la segunda chica más guapa del pueblo. Siempre me quedó la duda de si eso pasó gracias mis dotes de seducción, envalentonadas por una cantidad ingente de Kalimotxo y ron con cola, o por mero despecho de ella. Despecho motivado al ver a su antigua pareja bailar feliz con otra, al ritmo de un Mago de Oz que desafinaba. Me quedé con la duda, ya que no lo pregunté y ella nunca volvió por aquel pueblo.  
 
-\- ¿Lo pasaste bien? -preguntó el fantasma  
+— ¿Lo pasaste bien? —preguntó el fantasma  
 
-\- Pues creo que sí, aunque recuerdo tener una sensación rara todo el tiempo. Una sensación que ya no recordaba. Creo que a partir de ahí todo fue a peor, la gente empezó a distanciarse y… argg ggg gg. -el fantasma tenía uno de sus largos brazos en alto y su extraña magia me impedía seguir hablando, era como si me ahogase.
+— Pues creo que sí, aunque recuerdo tener una sensación rara todo el tiempo. Una sensación que ya no recordaba. Creo que a partir de ahí todo fue a peor, la gente empezó a distanciarse y… argg ggg gg. —el fantasma tenía uno de sus largos brazos en alto y su extraña magia me impedía seguir hablando, era como si me ahogase.
 
-\- Ya me has respondido. No tenemos tiempo para más reflexiones. Aún nos queda visitar una última verbena. -interrumpió el fantasma impaciente mientras miraba cómo me ahogaba al intentar hablar-. 
+— Ya me has respondido. No tenemos tiempo para más reflexiones. Aún nos queda visitar una última verbena. —interrumpió el fantasma impaciente mientras miraba cómo me ahogaba al intentar hablar—. 
 Acompáñame a la puerta. Vamos.
 
 Atravesamos la puerta y llegamos a una verbena en la que ya no hay casetas para disparar a palillos. Ya no hay tanta gente en el bar, amontonándose para conseguir su vaso de plástico. La orquesta toca Paquito chocolatero, gente más joven, los que antes eran adolescentes diminutos son los que siguen la canción entusiasmados. Ya no hay cuerdas que dibujen un techo de banderas.
 
-\- Última verbena, la de 2006
+— Última verbena, la de 2006
 
-\- Ya veo. -dije en silencio.
+— Ya veo. —dije en silencio.
 
 Recordé que ese verano fue el último al que fui a ese pueblo. Fui porque no tenía otros planes ese verano. Había roto con mi primera pareja propiamente dicha y no quería pasar el duelo solo.
 
@@ -103,7 +103,7 @@ Perdí el contacto con aquel amigo con el que tanto conecté antaño, con el que
 
 Sin esa persona, la experiencia fue totalmente vacía. Fue como tener el vacío de mi vida normal y otro vacío adicional al llegar a ese lugar, en el que ya nadie se tiraba en la hierba a mirar las estrellas.
 
-En esa verbena se seguía tocando Mago de Oz, 20 de Abril del Noventa y otras canciones que ya nadie disfrutaba como antes. Los más guapos del pueblo eran ya otros, de nuevas generaciones. Aquel que asumió previamente aquel título -de mierda- seguía haciendo sus bromas, las mismas de hace diez años. Como ya no tenía quien se riera de ellas, se reía él solo de las mismas y de otras que provenían de su vaso de plástico, al que nunca le faltó alcohol.
+En esa verbena se seguía tocando Mago de Oz, 20 de Abril del Noventa y otras canciones que ya nadie disfrutaba como antes. Los más guapos del pueblo eran ya otros, de nuevas generaciones. Aquel que asumió previamente aquel título —de mierda— seguía haciendo sus bromas, las mismas de hace diez años. Como ya no tenía quien se riera de ellas, se reía él solo de las mismas y de otras que provenían de su vaso de plástico, al que nunca le faltó alcohol.
 
 
 En esa última verbena se le podía ver dando tumbos, acercándose a diferentes grupos. Aunque aún conservaba cierto atractivo físico, había perdido el atractivo en todo lo demás y al acercarse ahora a personas del género opuesto, estas apartaban boca y cara cuando él se las aproximaba amenazando con juntar morro, especialmente tras haber vomitado frente de ellas. Terminó por perderse entre las calles del pueblo. No fue divertido presenciar aquella escena.
@@ -112,15 +112,15 @@ Su compañera en título había traído a su novio y sus amigos. Sorprendentemen
 
 Desde entonces, mantengo el contacto con unas siete personas simplemente por mantenerlo, para felicitarnos el cumpleaños por WhatsApp y nada más. Nunca volví a aquel pueblo. Escuché historias de algunos de los protagonistas volviéndose a cabrear por cosas de hace diez años, de problemas con el alcohol. Cosas que les pasan a estrellas del rock, pero sin ser estrellas del rock.
 
-\- ¿Lo pasaste bien? -preguntó el fantasma impaciente
+— ¿Lo pasaste bien? —preguntó el fantasma impaciente
 
-\- No fue un buen recuerdo, la verdad es que me arrepentí bastante de ir ese año
+— No fue un buen recuerdo, la verdad es que me arrepentí bastante de ir ese año
 
-\- Estupendo... -dijo el fantasma sin interés alguno y sin mirarme y haciendo el gesto de mirar un reloj que no se veía puesto en su muñeca. -Yo ya no tengo nada más que enseñarte. Me voy.
+— Estupendo... —dijo el fantasma sin interés alguno y sin mirarme y haciendo el gesto de mirar un reloj que no se veía puesto en su muñeca. —Yo ya no tengo nada más que enseñarte. Me voy.
 
-\- ¿¿Te vas??… ¿pero a dónde?, ¿de qué iba todo esto?
+— ¿¿Te vas??… ¿pero a dónde?, ¿de qué iba todo esto?
 
-\- ¡Sí! -dijo el fantasma, mostrando una cara de alegría por notar que yo había entendido algo que en realidad no había entendido en absoluto. -¡Recuerda tus verbenas pasadas! Y… ¡Pásalo bien! ¡Es importante!- Dijo desvaneciéndose tanto en voz como en presencia.  
+— ¡Sí! —dijo el fantasma, mostrando una cara de alegría por notar que yo había entendido algo que en realidad no había entendido en absoluto. —¡Recuerda tus verbenas pasadas! Y… ¡Pásalo bien! ¡Es importante!— Dijo desvaneciéndose tanto en voz como en presencia.  
 Y todo se desvaneció en una luz cegadora que me dejó confundido durante un minuto entero.
 
 No sé cuánto tiempo estuve en coma. A mi lado estaban mis padres y alguna persona más. En el grupo de Whatsapp tenía algunos mensajes del tipo “qué pena que no hayas podido venir a las fiestas, otro año será”, como si el haber rozado la muerte hubiera sido un mero contratiempo para perderme lo que realmente era importante, o “nos alegramos que te hayas recuperado”, con el emoji del brazo sacando bola. Hubo otras personas que no me escribieron, porque no sabían qué escribir, pero me llamaron y estuvimos un buen rato hablando. Después de esa ocasión, quedamos en varias ocasiones y recuperamos el contacto, aunque no nos felicitábamos el cumpleaños en WhatsApp.
