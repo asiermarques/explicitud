@@ -3,6 +3,8 @@ languageCode = 'es'
 defaultContentLanguage = 'es'
 title = 'Explicitud'
 theme = 'hugo-theme-texty'
+paginate = 5  # Number of posts per page
+paginatePath = "pagina"
 
 [[menus.main]]
 name = 'Acerca de'
@@ -11,8 +13,6 @@ weight = 20
 
 [params]
   description = "Explicitud, textos y microrelatos."
-  paginate = 5  # Number of posts per page
-  paginatePath = "pagina"
   [params.social]
     instagram = "https://www.instagram.com/asiermarques/"
     medium = "https://medium.com/@asiermarques"
