@@ -45,71 +45,70 @@ En nuestra aburrida peña había varios protagonistas, y aunque afortunadamente 
 
 Estaban el guapo y la guapa del pueblo. Y también la segunda más guapa y el segundo más guapo del pueblo. Los sellos de guapura eran concedidos no sólo por la gente del grupo, sino por padres, abuelos y otra serie de sociópatas narcisistas a los que les gustaba contribuir con su genialidad en un sistema social formado por criaturas sin madurar.  
 
-El segundo más guapo era primo de su superior en guapura y tenía una complicidad muy fuerte con la segunda más guapa. Estos siempre estaban criticando a los que tenían un estatus superior a ellos porque, según ellos, eran inaguantables. El más guapo del pueblo hacía bromas que hacían mucha gracia a todos menos a los segundos más guapos del pueblo, el primo de este siempre le respondía con sarcasmo y hacía reír a la segunda más guapa. A nosotros dos tampoco nos hacían gracia sus chistes, especialmente a la quinceava vez que los repetía. Simplemente asumíamos que tendría un tipo de limitación mental, nos limitábamos a guardar silencio buscando nuestra mirada con gestos que gritaban complicidad y sacábamos las palomitas mentales mientras disfrutábamos de la lucha de egos que se producían en esas ocasiones.  
+El segundo más guapo era primo de su superior en guapura y tenía una complicidad muy fuerte con la segunda más guapa. Estos siempre criticaban a los primeros en guapura porque, según ellos, eran inaguantables. El más guapo del pueblo hacía bromas que hacían mucha gracia a todos menos a los segundos más guapos del pueblo, el primo de este siempre le respondía con sarcasmo y hacía reír a la segunda más guapa. A nosotros dos tampoco nos hacían gracia sus chistes, especialmente a la quinceava vez que los repetía. Simplemente asumíamos que tendría un tipo de limitación mental y nos limitábamos a guardar silencio buscando nuestra mirada con muecas divertidas.  
 
-El más guapo del pueblo parecía interesado en la más guapa del pueblo, hasta creo que se liaron. En algún momento recuerdo que se fueron a alguna campa cogidos de la mano a darse un beso como mucho. Hubo una época en la que varios componentes del grupo hacían eso. Y los que no teníamos manos que coger ni campos a los que ir, nos dedicábamos a dar balonazos contra una pared o a disparar a latas con un rifle de perdigones.  
+Todo el mundo daba por sentado que el más guapo y la más guapa estaban liados. Liados desde la perspectiva inocente que teníamos nosotros por aquel entonces. En algún momento recuerdo que se fueron a alguna campa cogidos de la mano a darse un beso como mucho. Hubo una época en la que varios componentes del grupo hacían eso. Y los que no teníamos manos que coger ni campos a los que ir, nos dedicábamos a dar balonazos contra una pared o a disparar a latas con un rifle de perdigones.  
 
-A pesar de su interés, la más guapa del pueblo tenía interés en chicos de otros pueblos, más mayores que ella, más retrasados que ella, que por alguna razón tenían coches de alta gama teniendo ellos menos de veinte años. Algunos comentaban que los listos hacían dinero trabajando en la obra, en lugar de ir al instituto, colegio u otro lugar donde no hacías dinero para poder tener moto o coche con el que ir a otros pueblos.  
+A pesar de los besos ocasionales con lengua, la más guapa del pueblo tenía más interés en otros chicos de otros pueblos, más mayores que ella, más retrasados que ella, que por alguna razón tenían coches de alta gama; teniendo ellos menos de veinte años. Algunos comentaban que los listos hacían dinero trabajando en la obra, en lugar de ir al instituto, colegio u otro lugar donde no hacías dinero para poder tener moto o coche con el que ir a otros pueblos.  
 
-Todos esos líos de ego e intereses provocaban rechazo, bandos y pequeñas tiranteces entre nuestro grupo y se veían claramente en la verbena. Podías distinguir quién bailaba con quién y quién evitaba bailar con quién, mientras el resto tenía que elegir bando.  
+Todos esos líos adolescentes provocaban tensiones, bandos y pequeñas tiranteces entre nuestro grupo. Cosas que se veían claramente en la verbena. Podías distinguir quién bailaba con quién y quién evitaba bailar con quién, mientras el resto tenía que elegir. Elegir bando.  
 
-Era como ver la entradilla de Juego de Tronos, pero que en lugar de su famosa melodía, sonase Paquito el chocolatero y después el 20 de Abril del 90 de Celtas Cortos.  
+Era como ver la entradilla de Juego de Tronos, pero  cambiando su famosa melodía por Paquito el chocolatero o el 20 de Abril del 90 de Celtas Cortos.  
 
-A pesar de esas cosas, nos lo pasábamos bien. A partir del décimo vaso de plástico de ron con coca cola, ya te daba igual que la orquesta tocase el quemadísimo Saturday Nigth de Whigfield pronunciada como si la cantase un gato pidiendo jamon york, la bailabas igual intentando no caerte al suelo mientras hacías su coreografía.  
-Al final de la noche, todos los que no estábamos en una esquina dándonos besos, nos íbamos a la era del pueblo, nos tirábamos en la hierba a ver las estrellas, que veíamos con una nitidez que abrumaba.
+A pesar de esas cosas, nos lo pasábamos bien. A partir del décimo vaso de plástico de ron con coca cola, ya te daba igual que la orquesta tocase el quemadísimo Saturday Nigth de Whigfield pronunciada como si la cantase un gato pidiendo jamon york. La bailabas igual intentando no caerte al suelo mientras clavabas, o no, su coreografía.  
+Al final de la noche, todos los que no estábamos en una esquina dándonos besos, nos íbamos a la era del pueblo. Allí nos tirábamos en la hierba a ver las estrellas y la vía láctea, que nos abrumaba con la inmensa nitidez con la que se distinguía en el firmamento.
 
 — ¿Lo pasabas bien?—Preguntó el fantasma
 
-— Ehh… si, claro que si—Dije con sorpresa; claramente me había leído la mente porque yo no había dicho nada.—¿Por qué lo preguntas?
+— Ehh… si, claro que si—dije con sorpresa; claramente me había leído la mente porque yo no había dicho nada.—¿Por qué lo preguntas?
 
-— Yo pregunto, pero respuestas no son importantes. Hemos terminado aquí.—Dijo volteándose e invitándome a atravesar de nuevo la puerta por la que habíamos venido.
+— Yo pregunto, pero mis respuestas no son las importantes. Hemos terminado aquí—dijo volteándose e invitándome a atravesar de nuevo la puerta por la que habíamos venido.
 
-Al atravesar la puerta, nos encontramos la escena de otra verbena. Esta vez había menos cuerdas, menos banderas y menos puestos para disparar palillos.  
-El ambiente era parecido al de la verbena anterior, aunque había menos jóvenes corriendo de un lado al otro.
+Al atravesarla, nos encontramos la escena de otra verbena. Esta vez había menos cuerdas, menos banderas y menos puestos para disparar palillos.  
+El ambiente era parecido al de la verbena anterior, aunque había menos jóvenes corriendo de un lado al otro.  
 
-— Verbena del año 2000
+— Verbena del año 2000.  
 
 — Yo ahí tenía veinte años.— dije, mostrando mis habilidades sumatorias.
 
-Recordé que ese año la cosa estaba muy tensa. Había dos grupos divididos en esa peña, que no se hablaban entre ellos. El segundo más guapo del pueblo había empezado a salir con la segunda más guapa del pueblo, pero no funcionó muy bien, y el resultado fue que él se lió con la más guapa del pueblo, o la más guapa del pueblo se lió con él, no lo llegué a entender muy bien. La cuestión es que a su primo, el más guapo del pueblo, y a su antigua pareja, la segunda más guapa del pueblo, aquello no les sentó muy bien. Creo que ambos se liaron o intentaron hacerlo, pero algo pasó y estuvieron un tiempo evitándose.  
-Ese año eran amigos y nada más.  
+Recordé que ese año la cosa estaba muy tensa. Nuestra peña estaba dividida en dos grupos, que no se hablaban entre ellos. El segundo más guapo del pueblo había empezado a salir con la segunda más guapa del pueblo, pero aquello no funcionó muy bien. En algún momento el tipo se lió con la más guapa del pueblo, o la más guapa del pueblo se lió con él, no lo llegué a entender muy bien. La cuestión es que a su primo, el más guapo del pueblo, y a su antigua pareja, la segunda más guapa del pueblo, aquello no les sentó muy bien. Y su respuesta, a modo de venganza, fue liarse también entre ellos o al menos, intentaron hacerlo, pero algo raro pasó y estuvieron un tiempo evitándose.  
 Todo ese lío de líos desencadenó un ambiente enrarecido, los diferentes seguidores tuvieron que elegir bando para no aislarse en su propia falta de personalidad.  
 
-En cuanto a nosotros dos, los dos amigos raros que pasábamos de todo, nos llevábamos bien con todo el mundo porque todo el mundo venía a nosotros a criticar al resto. Sin embargo, mi compañero, mi refugio ante aquel panorama, mi punto de escape de toda la falsedad y odio que se respiraba en ese grupo de personas por amor directo o indirecto, no pudo quedarse ese año a las fiestas. Y no pude contar con él en esa verbena.  
+En cuanto a nosotros dos, los dos amigos raros que pasábamos de todo, nos llevábamos bien con todo el mundo aquel año porque todo el mundo venía a nosotros a criticar al resto. Sin embargo, mi compañero, mi refugio ante aquel panorama, mi punto de escape de toda la falsedad y odio que se respiraba en ese grupo de personas por amor directo o indirecto, no pudo quedarse a las fiestas. 
 
-Me dejó solo, y sin apoyo, para compartir vasos de plástico con gente que no tenía ganas de juntarse con el resto mientras sonaba Paquito el chocolatero.  
+Me dejó solo. Sin refugio. Condenado a compartir vasos de plástico con gente que no tenía ganas de juntarse con el resto mientras sonaba Paquito el chocolatero.  
 
-Estaba solo cuando la orquesta se venía arriba con Fiesta Pagana, desafinando como un gallo en paro, y los dos grupos se rompían a bailar como locos mientras se miraban con cara de desprecio. 
+Estaba solo cuando la orquesta se venía arriba con Fiesta Pagana de Mago de Oz, desafinando como un gallo en paro. Los dos grupos se rompían a bailar como locos, fingiendo diversión mientras se miraban con cara de desprecio. 
 
-Pero yo, por alguna razón, acabé viendo las estrellas con la segunda chica más guapa del pueblo. Siempre me quedó la duda de si eso pasó gracias mis dotes de seducción, envalentonadas por una cantidad ingente de Kalimotxo y ron con cola, o por mero despecho de ella. Despecho motivado al ver a su antigua pareja bailar feliz con otra, al ritmo de un Mago de Oz que desafinaba. Me quedé con la duda, ya que no lo pregunté y ella nunca volvió por aquel pueblo.  
+Y yo, por alguna razón, acabé viendo las estrellas con la segunda chica más guapa del pueblo. Siempre me quedó la duda de si eso pasó gracias mis dotes de seducción, envalentonadas por una cantidad ingente de ron con coca cola, o por mero despecho de ella. Despecho motivado al ver a su antigua pareja bailar feliz con otra persona, al ritmo de un Mago de Oz que desafinaba. Me quedé con la duda, ya que no lo pregunté y ella nunca volvió por aquel pueblo.  
 
 — ¿Lo pasaste bien? —preguntó el fantasma  
 
 — Pues creo que sí, aunque recuerdo tener una sensación rara todo el tiempo. Una sensación que ya no recordaba. Creo que a partir de ahí todo fue a peor, la gente empezó a distanciarse y… argg ggg gg. —el fantasma tenía uno de sus largos brazos en alto y su extraña magia me impedía seguir hablando, era como si me ahogase.
 
-— Ya me has respondido. No tenemos tiempo para más reflexiones. Aún nos queda visitar una última verbena. —interrumpió el fantasma impaciente mientras miraba cómo me ahogaba al intentar hablar—. 
+— Ya me has respondido. No tenemos tiempo para más reflexiones. Aún nos queda visitar una última verbena. —interrumpió el fantasma impaciente—. 
 Acompáñame a la puerta. Vamos.
 
-Atravesamos la puerta y llegamos a una verbena en la que ya no hay casetas para disparar a palillos. Ya no hay tanta gente en el bar, amontonándose para conseguir su vaso de plástico. La orquesta toca Paquito chocolatero, gente más joven, los que antes eran adolescentes diminutos son los que siguen la canción entusiasmados. Ya no hay cuerdas que dibujen un techo de banderas.
+Atravesamos la puerta y llegamos a una verbena en la que ya no hay casetas para disparar a palillos. Ya no hay tanta gente en el bar amontonándose para conseguir su vaso de plástico. La orquesta toca Paquito chocolatero, gente más joven, los que antes eran adolescentes diminutos son los que siguen la canción entusiasmados. Ya no hay cuerdas que dibujen un techo de banderas.
 
 — Última verbena, la de 2006
 
 — Ya veo. —dije en silencio.
 
-Recordé que ese verano fue el último al que fui a ese pueblo. Fui porque no tenía otros planes ese verano. Había roto con mi primera pareja propiamente dicha y no quería pasar el duelo solo.
+Recordé que ese verano fue el último al que fui a ese pueblo. Fui porque no tenía otros planes ese verano. 
 
-Perdí el contacto con aquel amigo con el que tanto conecté antaño, con el que compartí tantas aventuras.  Aventuras que no tenían nada de extraordinario pero que llenaron momentos de mi vida de recuerdos. Recuerdos a los que recurrir cuando caigo en la trampa de pensar que aprovechar la vida requiere de algo muy excepcional, tan fantástico, que dejo de aprovechar cosas más pequeñas, por ser menos “importantes”. Importantes, para otros.
+Perdí el contacto con aquel amigo con el que tanto conecté antaño, con el que compartí tantas aventuras. Aventuras que no tenían nada de extraordinario pero que llenaron momentos de mi vida de recuerdos. Recuerdos a los que volver cuando caigo en la trampa de pensar que aprovechar la vida requiere de algo muy excepcional, muy fantástico, dejando por ello de aprovechar cosas más pequeñas, por ser menos importantes. Menos importantes, para otros.
 
 Sin esa persona, la experiencia fue totalmente vacía. Fue como tener el vacío de mi vida normal y otro vacío adicional al llegar a ese lugar, en el que ya nadie se tiraba en la hierba a mirar las estrellas.
 
-En esa verbena se seguía tocando Mago de Oz, 20 de Abril del Noventa y otras canciones que ya nadie disfrutaba como antes. Los más guapos del pueblo eran ya otros, de nuevas generaciones. Aquel que asumió previamente aquel título —de mierda— seguía haciendo sus bromas, las mismas de hace diez años. Como ya no tenía quien se riera de ellas, se reía él solo de las mismas y de otras que provenían de su vaso de plástico, al que nunca le faltó alcohol.
+En esa verbena se seguía tocando Mago de Oz, 20 de Abril del Noventa y otras canciones que ya nadie disfrutaba como antes. Los más guapos del pueblo eran ya otros, de nuevas generaciones. Aquel al que el tiempo arrebató aquel título —de mierda— seguía haciendo sus bromas, las mismas de hace diez años. Como ya no tenía quien se riera de ellas, se reía él solo de las mismas y de otras que provenían de su vaso de plástico, al que nunca le faltó alcohol.
 
 
-En esa última verbena se le podía ver dando tumbos, acercándose a diferentes grupos. Aunque aún conservaba cierto atractivo físico, había perdido el atractivo en todo lo demás y al acercarse ahora a personas del género opuesto, estas apartaban boca y cara cuando él se las aproximaba amenazando con juntar morro, especialmente tras haber vomitado frente de ellas. Terminó por perderse entre las calles del pueblo. No fue divertido presenciar aquella escena.
+En esa última verbena se le podía ver dando tumbos, acercándose a diferentes grupos. Aunque aún conservaba cierto atractivo físico, había perdido el atractivo en todo lo demás y al acercarse ahora a personas del género opuesto, estas apartaban boca y cara cuando él se las aproximaba amenazando con juntar morro. Terminó por perderse entre las calles del pueblo. Con la torpeza y tristeza del que bebe solo y no se da cuenta de lo solo que está. 
 
-Su compañera en título había traído a su novio y sus amigos. Sorprendentemente eran muy majos y en cuanto vieron el percal, se fueron de allí para irse de fiesta a otro lugar. Deseé irme con ellos.
+La que fue la más guapa del pueblo había traído a su novio y sus amigos. Sorprendentemente eran muy majos y en cuanto vieron el percal, se fueron de allí para irse de fiesta a otro lugar. Deseé irme con ellos.
 
-Desde entonces, mantengo el contacto con unas siete personas simplemente por mantenerlo, para felicitarnos el cumpleaños por WhatsApp y nada más. Nunca volví a aquel pueblo. Escuché historias de algunos de los protagonistas volviéndose a cabrear por cosas de hace diez años, de problemas con el alcohol. Cosas que les pasan a estrellas del rock, pero sin ser estrellas del rock.
+Desde entonces, mantengo el contacto con unas siete personas simplemente por mantenerlo, para felicitarnos el cumpleaños por WhatsApp y nada más. Nunca volví a aquel pueblo. Escuché historias de algunos de los protagonistas volviéndose a cabrear por cosas de hace diez años, de problemas con el alcohol, de separaciones... Cosas que les pasan a estrellas del rock, pero sin ser estrellas del rock.
 
 — ¿Lo pasaste bien? —preguntó el fantasma impaciente
 
