@@ -5,7 +5,7 @@ date = 2025—06—15T23:07:07+02:00
 draft = false
 +++
 
-Al abrir los ojos encontré oscuridad y la sensación de no estar en mi cama. Tras intentar incorporarme, mi confusión se acentuó al encontrarme con un tipo portando lo que parecía un candelero y que me miraba fijamente con ojos caídos y en profundo silencio. Estaba a la altura de los pies de la cama e iba vestido completamente de negro.  
+Al abrir los ojos encontré oscuridad y la sensación de no estar en mi cama. Tras intentar incorporarme, mi confusión se acentuó al encontrarme con un tipo, a la altura de los pies de la cama, portando lo que parecía un candelero y que me miraba fijamente con ojos caídos y en profundo silencio.  
 La tímida luz de la única vela en su candelero iluminaba su cara, alargada y de mentón pronunciado, como la de esas personas que parecen claramente enterradores.
 
 — ¿Por qué llevas una vela? —de todas las cosas que podría preguntarle a aquel tipo, esto fue lo que salió por mi boca. No cabía duda de que estaba soñando.   
@@ -15,12 +15,11 @@ Necesito que me acompañes. —añadió con seriedad y tono de urgencia.
 
 — Entonces no estoy muerto, esto se trata de un sueño. —Dije aliviado, como si soñar lo que parecía una versión cutre de Pesadilla antes de Navidad fuera motivo para no preocuparse.  
 
-— No, no estás ni muerto ni soñando. Ibas conduciendo, camino a tu pueblo, recordarás eso. Levántate, no tenemos mucho tiempo. —El fantasma no es que fuera muy generoso en palabras. Mientras hablaba, dejó el candelero en el suelo y empezó a palpar la oscuridad con sus largos brazos, y sus manos se hundieron en paredes que no se veían.  
-Finalmente abrió una puerta de la nada y se quedó esperando junto a ella con impaciencia.  
+— No, no estás ni muerto ni soñando. Ibas conduciendo, camino a tu pueblo, recordarás eso. Levántate, no tenemos mucho tiempo. —El fantasma no es que fuera muy generoso en palabras. Mientras hablaba, dejó el candelero en el suelo y empezó a palpar la oscuridad con sus largos brazos. Sus manos se hundieron en paredes que no se veían y de la oscuridad, abrió una puerta que iluminó toda la estancia. Sujetándola, me esperaba con impaciencia.  
 
 — Pero… ¿y entonces?  
 
-En ese momento empezaron a llegarme imágenes de mis últimos recuerdos. Estaba conduciendo hacia el pueblo en el que veraneé hace muchos años. A alguna de mis antiguas amistades que también veraneaban por allí, se le ocurrió que era buena idea juntarnos de nuevo a pasar las fiestas de aquel lugar, juntos una vez más. Tenía prácticamente olvidadas a aquellas personas y aunque la idea de retomar el contacto no me parecía una mala idea, la de ir a pasar días con ellos en fiestas de un pueblo perdido ya me daba bastante más pereza.  
+En ese momento empezaron a llegarme imágenes de mis últimos recuerdos. Conducía hacia el pueblo en el que veraneé hace muchos años. A alguna de mis antiguas amistades, aquellas que también veraneaban por allí, se le ocurrió que era buena idea juntarnos de nuevo a pasar las fiestas de aquel lugar, después de tantos años. Tenía prácticamente olvidadas a aquellas personas y aunque retomar el contacto no me parecía una mala idea, la de ir a pasar días con ellos en fiestas de ese pueblo, ya perdido en mi memoria, me daba mucha pereza.  
 Todas aquellas almas del pasado estaban aparentemente muy ilusionadas por el reencuentro, y aunque sospechaba que esa ilusión era más bien fruto del quedar bien, no quería ser yo él el que dijera que no iba a ir, el aburrido, el que se tira para atrás o el que dice que no cuando el resto dice que sí.  
 _Tenía que_ ir.  
 
