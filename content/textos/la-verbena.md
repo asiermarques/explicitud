@@ -5,8 +5,7 @@ date = 2025-06-15T23:07:07+02:00
 draft = false
 +++
 
-Al abrir los ojos encontré oscuridad y la sensación de no estar en mi cama. Tras intentar incorporarme, mi confusión se acentuó al encontrarme con un tipo, a la altura de los pies de la cama, portando lo que parecía un candelero y que me miraba fijamente con ojos caídos y en profundo silencio.  
-La tímida luz de la única vela en su candelero iluminaba su cara, alargada y de mentón pronunciado, como la de esas personas que parecen claramente enterradores.
+Al abrir los ojos encontré oscuridad y la sensación de no estar en mi cama. Tras intentar incorporarme, mi confusión se acentuó al ver a un tipo a la altura de los pies de esa cama, mirándome fijamente, con ojos caídos y en profundo silencio. Portaba lo que parecía un candelero y la tímida luz de la única vela en el mismo, iluminaba parcialmente su cara, que era alargada y de mentón pronunciado, como la de esas personas que parecen claramente enterradores.
 
 — ¿Por qué llevas una vela? —de todas las cosas que podría preguntarle a aquel tipo, esto fue lo que salió por mi boca. No cabía duda de que estaba soñando.   
 
