@@ -39,7 +39,7 @@ Varias cuerdas llenas de banderas dibujaban un techo transparente en forma de ca
 A uno de los lados, el único bar del pueblo acogía en su terraza a la gente que no quería ni bailar ni peritar verbenas. Dentro, la gente se amontonaba esperando conseguir su preciado vaso de plástico.  
 
 Y allí estaba yo, tenía diecisiete años entonces y formaba parte de ese grupo que peritaba verbenas. A mi lado estaba mi mejor amigo, de ese lugar y de todos los lugares. Nunca tuve una conexión tan auténtica con nadie más. Esa conexión estaba a años luz en autenticidad, complicidad y confianza de la que tenía con los otros, que formaban parte de nuestra peña. En esa peña éramos quince personas, pero nosotros siempre íbamos a nuestra bola.  
-A lomos de nuestras bicis visitábamos un sinfín de pueblos y nos encantaba volver al nuestro para encontrarnos al resto de nuestro grupo tirados en cualquier esquina del pueblo, aburridos de no hacer nada mientras que nosotros habíamos hecho quince mil cosas y habíamos visto quince mil bichos, humanos o no, haciendo quince mil tonterías.  
+A lomos de nuestras bicis visitábamos un sinfín de pueblos y nos encantaba volver al nuestro para encontrarnos al resto de nuestro grupo tirados en cualquier esquina del lugar, aburridos de no hacer nada mientras que nosotros habíamos hecho quince mil cosas y habíamos visto quince mil bichos, humanos o no, haciendo quince mil tonterías.  
 
 En nuestra aburrida peña había varios protagonistas, y aunque afortunadamente no existía instagram ni ninguna cloaca parecida entonces, esos protagonistas contaban con sus seguidores, dentro y fuera del grupo.  
 
