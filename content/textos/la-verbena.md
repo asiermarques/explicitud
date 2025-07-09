@@ -12,7 +12,7 @@ Al abrir los ojos encontré oscuridad y la sensación de no estar en mi cama. Tr
 — Soy el fantasma de las verbenas pasadas. Llevo una vela para que puedas verme. —dijo la cara iluminada por la vela con un tono de obviedad.— Esto está muy oscuro y no llevarla nos complicaría las cosas. La vela es importante, sin ella nos retrasaríamos.  
 Necesito que me acompañes. —añadió con seriedad y tono de urgencia.   
 
-— Entonces no estoy muerto, esto se trata de un sueño. —Dije aliviado, como si soñar lo que parecía una versión cutre de Pesadilla antes de Navidad fuera motivo para no preocuparse.  
+— Entonces no estoy muerto, esto se trata de un sueño. —dije aliviado, como si soñar lo que parecía una versión cutre de Pesadilla antes de Navidad fuera motivo para no preocuparse.  
 
 — No, no estás ni muerto ni soñando. Ibas conduciendo, camino a tu pueblo, recordarás eso. Levántate, no tenemos mucho tiempo. —El fantasma no es que fuera muy generoso en palabras. Mientras hablaba, dejó el candelero en el suelo y empezó a palpar la oscuridad con sus largos brazos. Sus manos se hundieron en paredes que no se veían y de la oscuridad, abrió una puerta que iluminó toda la estancia. Sujetándola, me esperaba con impaciencia.  
 
@@ -57,7 +57,7 @@ Era como ver la entradilla de Juego de Tronos, pero  cambiando su famosa melodí
 A pesar de esas cosas, nos lo pasábamos bien. A partir del décimo vaso de plástico de ron con coca cola, ya te daba igual que la orquesta tocase el quemadísimo Saturday Nigth de Whigfield pronunciada como si la cantase un gato pidiendo jamon york. La bailabas igual intentando no caerte al suelo mientras clavabas, o no, su coreografía.  
 Al final de la noche, todos los que no estábamos en una esquina dándonos besos, nos íbamos a la era del pueblo. Allí nos tirábamos en la hierba a ver las estrellas y la vía láctea, que nos abrumaba con la inmensa nitidez con la que se distinguía en el firmamento.
 
-— ¿Lo pasabas bien?—Preguntó el fantasma
+— ¿Lo pasabas bien?—preguntó el fantasma
 
 — Ehh… si, claro que si—dije con sorpresa; claramente me había leído la mente porque yo no había dicho nada.—¿Por qué lo preguntas?
 
@@ -68,7 +68,7 @@ El ambiente era parecido al de la verbena anterior, aunque había menos jóvenes
 
 — Verbena del año 2000.  
 
-— Yo ahí tenía veinte años.— dije, mostrando mis habilidades sumatorias.
+— Yo ahí tenía veinte años.—dije, mostrando mis habilidades sumatorias.
 
 Recordé que ese año la cosa estaba muy tensa. Nuestra peña estaba dividida en dos grupos, que no se hablaban entre ellos. El segundo más guapo del pueblo había empezado a salir con la segunda más guapa del pueblo, pero aquello no funcionó muy bien. En algún momento el tipo se lió con la más guapa del pueblo, o la más guapa del pueblo se lió con él, no lo llegué a entender muy bien. La cuestión es que a su primo, el más guapo del pueblo, y a su antigua pareja, la segunda más guapa del pueblo, aquello no les sentó muy bien. Y su respuesta, a modo de venganza, fue liarse también entre ellos o al menos, intentaron hacerlo, pero algo raro pasó y estuvieron un tiempo evitándose.  
 Todo ese lío de líos desencadenó un ambiente enrarecido, los diferentes seguidores tuvieron que elegir bando para no aislarse en su propia falta de personalidad.  
