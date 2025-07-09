@@ -9,7 +9,7 @@ Hacía tiempo que quería ir a ese restaurante. Me lo habían recomendado varias
 
 
 Discutimos brevemente sobre quién iba a pagarla. Que si a medias. Que de ningún modo, que ya que yo había elegido el sitio, me tocaba a mí pagar. Así quedaba pendiente que ella eligiera otro sitio, otro día, y así, de ese modo, ya estaríamos en paz. Ella accedió. Yo, satisfecho por el acuerdo, busqué con la mirada a algún camarero. Sin éxito.  
-Juraría que varios habían pasado cerca de nuestra mesa hacía apenas un minuto, pero ahora no se veía a nadie. Mientras los buscaba, crucé la mirada con las personas de otra mesa por error. Quizás pensaron que les estaba mirando a ellas. No lo creo, era evidente que mi mirada buscaba camareros y no fisgonear vidas ajenas. Vidas que no me interesaban en absoluto. Quizás se creían el centro de atención.  
+Juraría que varios habían pasado cerca de nuestra mesa hacía apenas un minuto, pero ahora no se veía a nadie. Mientras los buscaba, crucé la mirada con personas de otra mesa por error. Quizás pensaron que les estaba mirando a ellas. Pero era evidente que mi mirada buscaba camareros y no fisgonear vidas ajenas. Vidas que no me interesaban en absoluto. Quizás se creían el centro de atención.  
 _La gente_ es así.
 
 
