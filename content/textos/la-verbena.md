@@ -1,7 +1,7 @@
 +++
 title = 'La verbena'
 description = 'Un tipo y varias verbenas'
-date = 2025—06—15T23:07:07+02:00
+date = 2025-06-15T23:07:07+02:00
 draft = false
 +++
 
