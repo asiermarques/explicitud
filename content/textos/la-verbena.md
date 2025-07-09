@@ -48,13 +48,13 @@ El segundo más guapo era primo de su superior en guapura y tenía una complicid
 
 Todo el mundo daba por sentado que el más guapo y la más guapa estaban liados. Liados desde la perspectiva inocente que teníamos nosotros por aquel entonces. En algún momento recuerdo que se fueron a alguna campa cogidos de la mano a darse un beso como mucho. Hubo una época en la que varios componentes del grupo hacían eso. Y los que no teníamos manos que coger ni campos a los que ir, nos dedicábamos a dar balonazos contra una pared o a disparar a latas con un rifle de perdigones.  
 
-A pesar de los besos ocasionales con lengua, la más guapa del pueblo tenía más interés en otros chicos de otros pueblos, más mayores que ella, más retrasados que ella, que por alguna razón tenían coches de alta gama; teniendo ellos menos de veinte años. Algunos comentaban que los listos hacían dinero trabajando en la obra, en lugar de ir al instituto, colegio u otro lugar donde no hacías dinero para poder tener moto o coche con el que ir a otros pueblos.  
+A pesar de aquella relación que a ojos de todos parecía perfecta, a la más guapa del pueblo le interesaban en realidad otros chicos de otros pueblos, más mayores que ella, más retrasados que ella, que por alguna razón conducían coches de alta gama, teniendo ellos menos de veinte años. Algunos comentaban que los listos hacían dinero trabajando en la obra, en lugar de ir al instituto, colegio u otro lugar donde no hacías dinero para poder tener moto o coche con el que ir a otros pueblos.  
 
 Todos esos líos adolescentes provocaban tensiones, bandos y pequeñas tiranteces entre nuestro grupo. Cosas que se veían claramente en la verbena. Podías distinguir quién bailaba con quién y quién evitaba bailar con quién, mientras el resto tenía que elegir. Elegir bando.  
 
 Era como ver la entradilla de Juego de Tronos, pero  cambiando su famosa melodía por Paquito el chocolatero o el 20 de Abril del 90 de Celtas Cortos.  
 
-A pesar de esas cosas, nos lo pasábamos bien. A partir del décimo vaso de plástico de ron con coca cola, ya te daba igual que la orquesta tocase el quemadísimo Saturday Nigth de Whigfield pronunciada como si la cantase un gato pidiendo jamon york. La bailabas igual intentando no caerte al suelo mientras clavabas, o no, su coreografía.  
+Pero nos lo pasábamos bien. A partir del décimo vaso de plástico de ron con coca cola, ya te daba igual que la orquesta tocase el quemadísimo Saturday Nigth de Whigfield pronunciada como si la cantase un gato pidiendo jamon york. La bailabas igual intentando no caerte al suelo mientras clavabas, o no, su coreografía.  
 Al final de la noche, todos los que no estábamos en una esquina dándonos besos, nos íbamos a la era del pueblo. Allí nos tirábamos en la hierba a ver las estrellas y la vía láctea, que nos abrumaba con la inmensa nitidez con la que se distinguía en el firmamento.
 
 — ¿Lo pasabas bien?—preguntó el fantasma
