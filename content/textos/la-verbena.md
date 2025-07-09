@@ -106,7 +106,7 @@ En esa verbena se seguía tocando Mago de Oz, 20 de Abril del Noventa y otras ca
 
 En esa última verbena se le podía ver dando tumbos, acercándose a diferentes grupos. Aunque aún conservaba cierto atractivo físico, había perdido el atractivo en todo lo demás y al acercarse ahora a personas del género opuesto, estas apartaban boca y cara cuando él se las aproximaba amenazando con juntar morro. Terminó por perderse entre las calles del pueblo. Con la torpeza y tristeza del que bebe solo y no se da cuenta de lo solo que está. 
 
-La que fue la más guapa del pueblo había traído a su novio y sus amigos. Sorprendentemente eran muy majos y en cuanto vieron el percal, se fueron de allí para irse de fiesta a otro lugar. Deseé irme con ellos.
+La que fue la más guapa del pueblo fue ese año con su novio y algunos amigos. Sorprendentemente eran muy majos y en cuanto vieron el percal, se fueron de allí para irse de fiesta a otro lugar. Deseé irme con ellos.
 
 Desde entonces, mantengo el contacto con unas siete personas simplemente por mantenerlo, para felicitarnos el cumpleaños por WhatsApp y nada más. Nunca volví a aquel pueblo. Escuché historias de algunos de los protagonistas volviéndose a cabrear por cosas de hace diez años, de problemas con el alcohol, de separaciones... Cosas que les pasan a estrellas del rock, pero sin ser estrellas del rock.
 
