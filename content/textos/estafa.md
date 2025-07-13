@@ -2,7 +2,7 @@
 title = 'Estafa en dos actos.'
 description = 'El sentimiento y lo que pasa después, de sufrir una estafa'
 date = 2025-07-13T18:06:07+02:00
-draft = true
+draft = false
 +++
 
 ## Acto uno
