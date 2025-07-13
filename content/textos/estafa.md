@@ -1,5 +1,5 @@
 +++
-title = 'Estafa en dos actos.'
+title = 'Estafa en dos actos'
 description = 'El sentimiento y lo que pasa después, de sufrir una estafa'
 date = 2025-07-13T18:06:07+02:00
 draft = false
@@ -12,6 +12,6 @@ Consigue apretar el botón de llamada.
 
 — ¿Sí? ¿Mamá?
 
-#### Acto dos.
+#### Acto dos
 
 ...continuará...
