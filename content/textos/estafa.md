@@ -28,6 +28,6 @@ Intentó calmarla. Lo hecho, hecho estaba. Ahora tocaba poner una denuncia y seg
 
 Su madre recobró poco a poco la calma. Cuando por fin recuperó también la entereza, salieron a poner la denuncia. Esa noche, se quedó con ella y durmió en su antigua habitación, la de cuando era niña. Allí estaban sus antiguos libros y cuadernos. También estaban las fotografías enmarcadas de ella junto a sus padres. Desde aquella cama de noventa, pensaba en lo distinta que era ahora su vida, tan distinta a la que ellos vivieron. Y que lo era, gracias a que se lo habían dado todo, incluso en los momentos más duros, cuando ellos apenas tenían nada.  
 
-Después de aquella noche, las visitas se hicieron cada vez más frecuentes. Los años pasaron. Llegaron los biberones, los cumpleaños, las risas, las sobremesas, las meriendas y también las infusiones, que compartían hasta el anochecer. Llegaron los momentos que hacen olvidar el pasado y detienen el presente.  
+Después de aquel episodio, las visitas se hicieron cada vez más frecuentes. Los años pasaron. Llegaron los biberones, los cumpleaños, las risas, las sobremesas, las meriendas y también las infusiones, que compartían hasta el anochecer. Llegaron los momentos que hacen olvidar el pasado y detienen el presente.  
 Momentos que vivieron, juntas, en aquella misma cocina.  
 
