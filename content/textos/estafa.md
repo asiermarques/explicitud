@@ -14,7 +14,7 @@ Consigue apretar el botón de llamada.
 
 #### II
 Se vistió sin pensar. Bajó a toda prisa. Se subió al coche. Diez minutos que le resultaron una eternidad. Aparcó como pudo y cerró el vehículo, también como pudo. Subió corriendo los cuatro pisos y, por fin, llegó a la puerta. Casi sin aire en los pulmones.  
-Tocó el timbre, varias veces, mientras trataba de recuperar el aliento.  
+Rebuscó en el bolso, pero no encontró las llaves de esa puerta. Se las había dejado en casa. Tocó el timbre, varias veces, mientras trataba de recuperar el aliento.  
 
 La puerta se abrió, y tras ella estaba su madre, con el rostro desfigurado por la tristeza. Sólo la había visto así en otra ocasión, cuando su padre murió, años atrás. Aquella pérdida la quebró por dentro, llevándose consigo la entereza que siempre la había definido. Pero esta vez, además del dolor y la angustia que ya había percibido por teléfono, notó algo más en su mirada. Vergüenza. Una vergüenza muy profunda, contenida en unos ojos incapaces de sostener los suyos.  
 
