@@ -15,7 +15,8 @@ Incluso las que no son blancas, lo son en concepto y forma. El blanco es la ause
 Por eso, las planchas modernas no se guardan a la vista. Las planchas modernas se encierran en armarios, como monstruos puntiagudos que son, para alejarnos de toda ausencia de color, de pausa, de tiempo y de vida.
 
 #### Instrucciones de una plancha moderna  
-Enhorabuena por su nueva adquisición. Esta plancha moderna le acompañará en sus largos ratos de plancha convirtiéndolos en una experiencia memorable que estará encantado de repetir ya que, por otra parte, ¡no le quedará otro remedio!
+Enhorabuena por su nueva adquisición. Esta plancha moderna le acompañará en sus largos ratos de plancha, convirtiéndolos en una experiencia memorable que estará dispuesto a repetir, porque, al fin y al cabo, ¡no le quedará otro remedio!  
+
 Extraiga su nueva plancha del embalaje. Notará que nuestras planchas tienen un diseño moderno, deportivo incluso. Usted no merece menos. Sabemos que las personas como usted, modernas, con vidas llenas de exigentes retos diarios, necesitan una plancha dotada de la última tecnología, la más fiable y eficaz. Un instrumento capaz de acabar con las arrugas más difíciles, esas tan problemáticas e irritantes.  
 
 Llene el depósito de la plancha de agua, enchúfela y espere hasta que el moderno piloto azul eléctrico se apague y el aparato emita un pequeño rugido. Ese sonido indicará que ya pueden, usted y su plancha, iniciar sin miedo ni desazón su nueva aventura antiarrugas.  
