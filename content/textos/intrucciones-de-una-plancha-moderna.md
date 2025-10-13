@@ -20,7 +20,7 @@ Extraiga su nueva plancha del embalaje. Notará que nuestras planchas tienen un 
 
 Llene el depósito de la plancha de agua, enchúfela y espere hasta que el moderno piloto azul eléctrico se apague y el aparato emita un pequeño rugido. Ese sonido indicará que ya pueden, usted y su plancha, iniciar sin miedo ni desazón su nueva aventura antiarrugas.  
 
-Debemos recordarle que su plancha está diseñada para utilizarse con tejidos y prendas de todo tipo. Evite, sin embargo, la tentación de usarla con sus mascotas. Concretamente con gatos. Estos se muestran especialmente agresivos si intentan plancharlos.  
+Debemos recordarle que su plancha está diseñada para utilizarse con tejidos y prendas de todo tipo. Sin embargo, evite la tentación de usarla con sus mascotas. Concretamente con los gatos. Estos se muestran especialmente agresivos si intentan plancharlos.  
 
 Antes de empezar la tarea, mentalícese. Evite pensar en todas aquellas cosas que podría hacer en lugar de dedicar su tiempo a planchar. La vida es muy corta, pero se disfruta más sin arrugas. Una arruga puede arruinarnos el día, mostrarnos al resto como descuidados. Como inútiles despreocupados que se abandonan dejando a un lado toda higiene. Seres repulsivos y malolientes, como el más repugnante de los residuos. Usted no es así. Y no lo será gracias a su nueva plancha moderna.  
 
