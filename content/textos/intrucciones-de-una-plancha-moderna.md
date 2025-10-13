@@ -5,7 +5,7 @@ date = 2025-10-12T23:07:07+02:00
 draft = false
 +++
 
-### Preámbulo a las instrucciones de una plancha moderna  
+#### Preámbulo a las instrucciones de una plancha moderna
 En este manual nos detendremos a detallar las instrucciones de uso de una plancha moderna. Es obligado mencionar que una plancha moderna difiere en mucho de una plancha clásica. Por ejemplo, una plancha moderna, a diferencia de una plancha clásica, no es un objeto que elegimos normalmente para decorar un hogar. Situar una plancha moderna a la vista, pongamos en una estantería, digamos al lado de unos libros, nos condena a recordar lo pendiente, lo que está por hacer, lo que aún no hemos hecho y lo que nunca terminaremos de hacer. Incluso si todo lo pendiente está planchado ya, la presencia de una plancha moderna nos recordará que tarde o temprano lo completado estará esperando otra vez a completarse. Y si es usted de los que disfrutan de su ratito de plancha, descuide, el diseño de una plancha moderna hará que esos ratos sean algo mucho peor que tediosos. Serán olvidables.  
 
 Una plancha moderna es de plástico, a menudo blanco. Algunas con formas deportivas, aerodinámicas, como testadas en túneles de viento, preparadas para competir rabiosamente en alguna de esas frenéticas carreras que nunca podremos ganar. Diseños que recuerdan a los de esos modernos edificios y grandes coches, que hacen tan pequeñas nuestras ciudades.  
@@ -14,7 +14,7 @@ Incluso las que no son blancas, lo son en concepto y forma. El blanco es la ause
 
 Por eso, las planchas modernas no se guardan a la vista. Las planchas modernas se encierran en armarios, como monstruos puntiagudos que son, para alejarnos de toda ausencia de color, de pausa, de tiempo y de vida.
 
-### Instrucciones de una plancha moderna  
+#### Instrucciones de una plancha moderna  
 Enhorabuena por su nueva adquisición. Esta plancha moderna le acompañará en sus largos ratos de plancha convirtiéndolos en una experiencia memorable que estará encantado de repetir ya que, por otra parte, ¡no le quedará otro remedio!
 Extraiga su nueva plancha del embalaje. Notará que nuestras planchas tienen un diseño moderno, deportivo incluso. Usted no merece menos. Sabemos que las personas como usted, modernas, con vidas llenas de exigentes retos diarios, necesitan una plancha dotada de la última tecnología, la más fiable y eficaz. Un instrumento capaz de acabar con las arrugas más difíciles, esas tan problemáticas e irritantes.  
 
