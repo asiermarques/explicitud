@@ -6,4 +6,4 @@ draft = false
 +++
 
 Nunca entendí las reglas del tiempo. Tan rígidas. Tan innegociables.  
-Y que este impusiera olvido, tras tan poco de todo contigo.
+Ni que este impusiera olvido, tras tan poco de todo contigo.
