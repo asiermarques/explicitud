@@ -14,8 +14,8 @@ Una vez mató a un gato a palos. Con los balines no hubo manera. Sus amigos se m
 Los años pasaron y el muchacho ya estaba en edad de tener novia. Algunas le gustaban y él también les gustaba a ellas. Las hacía reír, mucho, antes de la primera paliza. Porque, según él, no hacían lo que debían. O por lo que fuera. Luego lloraba porque «te quiero mucho pero es que yo soy así, de mucho temperamento». Y es que, «¿por qué miras a ese?» o «¿por qué ese payaso te mira?» Que qué se habrá creído, «¿a qué le doy dos hostias?» Pero al final, era más práctico dárselas a ellas.   
 Tenía ya más denuncias que amigos. «Todas putas», decía, aunque ya no le dejaban entrar en los puticlubs que frecuentaba.  
   
-Maldijo el día en que aquella infeliz lo llevó al límite. Se arrepentía, y mucho, de haberla conocido.  
-Ahora tenía que soportar que le llamasen asesino. «Ni siquiera era tan guapa», pensó.  
+Maldijo el día en que aquella infeliz lo llevó al límite. Se arrepentía, y mucho, de haberla conocido. Ahora tenía que soportar que le llamasen asesino.  
+«Ni siquiera era tan guapa», pensó.  
   
 «Desde bien pequeño ya se veía que no estaba muy bien de la cabeza», decían los que ya no eran sus amigos.  
 «Una vez quemó a un gato», dijo uno de ellos.  
