@@ -5,7 +5,7 @@ date = 2026-01-24T18:06:07+02:00
 draft = false
 +++
 
-Tras pasar la línea, juró y rejuró arrepentimiento; lloraba tanto que no se le entendía.  
+Juró y rejuró arrepentimiento; lloraba tanto que no se le entendía.  
   
 De pequeño, muy pequeño, si se aburría, pinchaba hormigas con un palo. También atrapaba moscas y les quitaba una o las dos alas. Observaba cómo estas zumbaban en círculos hasta quedar inmóviles y las dejaba morir allí cuando el momento precisaba de otras atenciones.  
 De mayor, le regalaron una escopeta de esas de balines de plomo. Atrapaba ranas y sapos que empalaba en la boquilla. Al apretar el gatillo, sus amigos reían.  
