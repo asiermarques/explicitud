@@ -18,5 +18,5 @@ Tenía ya más denuncias que amigos. «Todas putas», decía, aunque ya no le de
 Maldijo el día en que aquella infeliz lo llevó al límite. Se arrepentía, y mucho, de haberla conocido. Ahora tenía que soportar que le llamasen asesino.  
 «Ni siquiera era tan guapa», pensó.  
   
-«Desde bien pequeño ya se veía que no estaba muy bien de la cabeza», decían los que ya no eran sus amigos.  
+«Desde bien pequeño ya se veía que no estaba muy bien de la cabeza», comentaban los que ya no eran sus amigos.  
 «Una vez quemó a un gato», dijo uno de ellos.  
