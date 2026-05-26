@@ -24,3 +24,5 @@ Un rato más tarde, las patatas y los trozos acaramelados de la cebolla bailan m
 El niño duda un momento, pegado a su regazo. Mira al fuego y luego la mira a ella.  
 
 Desde entonces, con cada tortilla y cada golpe de pandereta, Miguel vuelve al regazo de su abuela. Y ahora los vecinos se quejan un poquito menos.
+
+(primera versión)
