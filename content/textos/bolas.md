@@ -5,10 +5,9 @@ date = 2026-06-14T12:43:31+02:00
 draft = false
 +++
 
-El sonido del Messenger en el ordenador de aquella habitación de principios de milenio me levanta de un brinco de la cama.  
-  
-Un amigo me escribe un breve «¿estás?» y yo le contesto que sí, que estaba en la cama, porque una copiosa comida de domingo me había dejado fuera de juego. Él responde con un nervioso «No sé qué hacer, tío. Ayer la lié muy gorda».
+El sonido del Messenger en el ordenador de mi habitación de principios de milenio me levanta de la cama.  
 
+Un amigo me escribe un breve «¿estás?» y yo le contesto que sí, que estaba tumbado, porque una copiosa comida de domingo me había dejado fuera de juego. Él responde con un nervioso «No sé qué hacer, tío. Ayer la lié muy gorda».  
    
 Le pido que me cuente. Y él me cuenta. Me escribe que ayer no querían liarse mucho. Que el plan era como el de cada sábado cuando tu paga de adolescente no te da para muchas copas en los bares. Ir al Pryca a por vodka del bueno, es decir, del bueno en nuestra opinión, y comprar Fanta Naranja –porque obviamente sube más que el Kas– y una garrafa de cinco litros de agua. Y si somos más de dos, repetimos el proceso en concordancia. Después subimos al monte hasta que se termine todo y bajamos a los bares listos ya para que la noche nos absorba. Pero ese sábado el plan era no liarse, claro. “Una garrafa y a casa”. El problema fue que ayer no hubo sólo una garrafa. Y que tras bajar del monte, tuvieron que repasar todos los bares por si alguno había desaparecido. Incluído el “Walking Dead”, que tiene otro nombre, pero nosotros lo llamamos así por el estupendo estado de la gente que merodea por allí.  
 
