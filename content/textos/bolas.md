@@ -40,7 +40,7 @@ En ese bar terminamos las noches más por remedio que por gusto, ya que es uno d
 
 –Es que si me las quedo y me han visto… no puedo ir por allí. Pero es que vamos todos los findes, ya saben quién soy. Me han visto fijo. Y si las devuelvo, ¿cuándo lo hago? ¿Y voy yo solo? si voy yo solo me rajan, ¡es que me rajan!  
 
-–Joder yo que sé, hoy estará abierto, si quieres te acompaño. –escribí con voz muy muy bajita.  
+–Joder yo que sé, hoy estará abierto, si quieres te acompaño. –escribo con una voz muy muy bajita.  
 
 –¿Pero voy y qué les digo? ¿Que soy gilipollas y les he robado unas bolas? ¿Que por favor no me rajen? ¿Que tengo un retraso y a veces hago esas cosas?  
 
@@ -54,9 +54,9 @@ Quedamos a las seis. El bar, como siempre, está abierto. Al cabo de unos minuto
 
 –La blanca y la negra, ¿en serio? No podías haber elegido otras…. 
 
-–Sí, soy gilipollas.–contestó–hala, vamos y terminemos con esto cuanto antes.  
+–Sí, soy gilipollas.–contesta–hala, vamos y terminemos con esto cuanto antes.  
 
-Y aquí estamos. Al llegar a la puerta, un tipo fuma mirando al infinito. Es el portero, o eso creemos. Mi amigo hace un torpe amago de saludar antes de abrir la puerta, pero la figura permanece inmóvil, con sus ojos fijados en el edificio de enfrente.  
+Y vamos al bar. Al llegar a la puerta, un tipo fuma mirando al infinito. Es el portero, o eso creemos. Mi amigo hace un torpe amago de saludar antes de abrir la puerta, pero la figura permanece inmóvil, con sus ojos fijados en el edificio de enfrente.  
 
 El local está vacío. Suena el Sweet Child O' Mine y tardamos una media hora mental en dar los cuatro pasos que nos llevan hasta la barra del bar. Un camarero con cara de enterrador limpia los vasos hasta darse cuenta de nuestra presencia.  
 
@@ -68,9 +68,9 @@ El local está vacío. Suena el Sweet Child O' Mine y tardamos una media hora me
 
 –Eh, no, traemos unas bolas–acierta a contestar mi amigo–que estaban debajo de un coche ayer, eh, un coche azul aparcado delante del bar, alguien las cogería, yo… nosotros no, pero el coche estaba delante de una alcantarilla, casi se caen, por la alcantarilla, y llovía, estaban mojadas y las cogí, porque son vuestras y las he traído  
 
-Y tras esta explicación nada rebuscada, el camarero miró a mi amigo. Miró las bolas.  
+Y tras esta explicación nada rebuscada, el camarero mira a mi amigo. Y luego mira las bolas.  
 
-–Pero esas bolas… ¿son nuestras?–dijo el muerto no sin poco esfuerzo. 
+–Pero esas bolas… ¿son nuestras?–dice el muerto no sin poco esfuerzo. 
 
 –Eh sí, del futbolín. 
 
