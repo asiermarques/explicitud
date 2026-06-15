@@ -38,7 +38,14 @@ En ese bar terminamos las noches más por remedio que por gusto, ya que es uno d
 
 –¿Y qué piensas hacer entonces?  
 
-–Es que si me las quedo y me han visto… no puedo ir por allí. Pero es que vamos todos los findes, ya saben quién soy. Me han visto fijo. Y si las devuelvo, ¿cuándo lo hago? ¿Y voy yo solo? si voy yo solo me rajan, ¡es que me rajan!  
+–Pues tirarlas a tomar por culo, igual no me vieron y me estoy emparanoiando.
+
+–¿Crees que fuiste discreto?
+
+Y de repente silencio. Ambos sabemos que es una pregunta retórica.  
+
+–No me acuerdo de nada pero seguro que me vió todo el puto bar. Es que soy gilipollas tío. Es que vamos todos los findes joder, ya saben quién soy. Me han visto fijo. Y si las devuelvo… ¿cuándo lo hago? ¿Y voy yo solo? si voy yo solo me rajan, ¡es que me rajan!  
+
 
 –Joder yo que sé, hoy estará abierto, si quieres te acompaño. –escribo con una voz muy muy bajita.  
 
