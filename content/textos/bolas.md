@@ -19,9 +19,7 @@ Pero en el Walking Dead no hay drogas. Tras años de muertes por sobredosis y as
 En ese bar terminamos las noches más por remedio que por gusto, ya que es uno de los últimos que cierran. De hecho, nunca lo hemos visto cerrado. Un potente foco de luz en su puerta metálica sin ventanas nos guía como a viejos navíos perdidos de noche, en medio de una inquietante tormenta. Como casi nadie más acaba allí aparte de su tétrica cuadrilla y algún que otro inconsciente, nunca se llena, hay siempre muy buena música rock de los 70 y 80 y el billar suele estar libre para nosotros. A los zombies los evitamos fácilmente ya que suelen estar en la barra, que los mantiene a todos de pie con más o menos éxito.  
 
   
-–Total, que he amanecido con dos bolas de billar y sin calzoncillos en la cama.  
-
-–concluyó tras contarme la noche de sábado que recordaba.  
+–Total, que he amanecido con dos bolas de billar y sin calzoncillos en la cama.–concluyó tras contarme la noche de sábado que recordaba.  
 
 –Bueno, lo de los calzoncillos no me sorprende, en algún lado los perderías haciendo el payaso como siempre–bromeé–pero lo de las bolas es más curioso.  
 
@@ -59,9 +57,9 @@ Quedamos a las seis. El bar, como siempre, está abierto. Al cabo de unos minuto
 
 –Sí, soy gilipollas.–contestó–hala, vamos y terminemos con esto cuanto antes.  
 
-Y fuimos. Al llegar a la puerta, un tipo fumaba mirando al infinito. Era el portero, o eso creíamos. Mi amigo hizo un torpe amago de saludar antes de abrir la puerta, pero la figura permaneció inmóvil, con sus ojos fijados en el edificio de enfrente.  
+Y aquí estamos. Al llegar a la puerta, un tipo fuma mirando al infinito. Es el portero, o eso creemos. Mi amigo hace un torpe amago de saludar antes de abrir la puerta, pero la figura permanece inmóvil, con sus ojos fijados en el edificio de enfrente.  
 
-El local estaba vacío. Sonaba el Sweet Child O' Mine y tardamos una media hora mental en dar los cuatro pasos que nos llevaron hasta la barra del bar. Un camarero con cara de enterrador limpiaba los vasos hasta darse cuenta de nuestra presencia.  
+El local está vacío. Suena el Sweet Child O' Mine y tardamos una media hora mental en dar los cuatro pasos que nos llevan hasta la barra del bar. Un camarero con cara de enterrador limpia los vasos hasta darse cuenta de nuestra presencia.  
 
 –Eh hola, ¿qué os pongo? 
 
