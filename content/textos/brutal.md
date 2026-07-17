@@ -6,4 +6,5 @@ draft = false
 +++
 
 Siempre me gustó la palabra brutal. 
-Cuando algo no es sólo magnífico o extraordinario, sólo le queda definirse así: brutal. Pero casi nadie la pronuncia como es debido, separando bien sus dos sílabas y haciendo notar, con la lengua pateando los dientes, esa poderosa te que remarca lo irrepetible.
+Cuando algo no es sólo magnífico o extraordinario, sólo le queda definirse así: brutal.  
+Pero casi nadie la pronuncia como es debido, separando bien sus dos sílabas y haciendo notar, con la lengua pateando los dientes, esa poderosa te que remarca lo irrepetible.
