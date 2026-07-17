@@ -6,6 +6,8 @@ draft = false
 +++
 
 Hubo una vez un par de alambres.  
-No siempre estuvieron juntos. Al ser alambres, no podían pensar, pero, poco a poco, su forma tomó la del otro con cada abrazo.  
-Ese recuerdo físico los acompañó durante años de idas y venidas, mientras buscaban otras formas. Formas diferentes. A poder ser, perfectas.  
-Durante su búsqueda, nunca renunciaron a las formas que ya tenían y terminaban abrazándose de nuevo, fijándolas con mucha más fuerza. Otros intentaron adaptarse a ellas y quedaron desfigurados y tristes. Cuando llegó el óxido, se buscaron en quien pudieron. Con sus formas hechas por el otro.
+No siempre estuvieron juntos. Al ser alambres, no podían pensar, pero, poco a poco y con cada abrazo, su forma tomó la del otro.  
+Ese recuerdo físico los acompañó durante años de idas y venidas, mientras buscaban otras formas. Formas diferentes. Y a poder ser, perfectas.  
+Durante su búsqueda, nunca renunciaron a las formas que ya tenían. Y terminaban abrazándose de nuevo, fijándolas con mucha más fuerza.  
+Otros intentaron adaptarse a ellas y quedaron desfigurados y tristes.  
+Cuando llegó el óxid o, se buscaron en quien pudieron. Con sus formas hechas por el otro.
