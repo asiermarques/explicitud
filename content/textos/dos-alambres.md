@@ -10,4 +10,4 @@ No siempre estuvieron juntos. Al ser alambres, no podían pensar, pero, poco a p
 Ese recuerdo físico los acompañó durante años de idas y venidas, mientras buscaban otras formas. Formas diferentes. Y a poder ser, perfectas.  
 Durante su búsqueda, nunca renunciaron a las formas que ya tenían. Y terminaban abrazándose de nuevo, fijándolas con mucha más fuerza.  
 Otros intentaron adaptarse a ellas y quedaron desfigurados y tristes.  
-Cuando llegó el óxid o, se buscaron en quien pudieron. Con sus formas hechas por el otro.
+Cuando llegó el óxido, se buscaron en quien pudieron. Con sus formas hechas por el otro.
